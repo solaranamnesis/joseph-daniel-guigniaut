@@ -92,11 +92,11 @@ With purple tears, that his wound wept, was drench'd.
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;No flower was nigh, no grass, herb, leaf, or weed,  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;But stole his blood, and seem'd with him to bleed.'
 
-'This solemn sympathy poor _Venus_ noteth, 
-Over one shoulder doth she hang her head: 
-Dumbly she passions, frantickly she doteth; 
-She thinks he could not die, he is not dead. 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her voice is stopp'd, her joints forget to bow, 
+'This solemn sympathy poor _Venus_ noteth,  
+Over one shoulder doth she hang her head:  
+Dumbly she passions, frantickly she doteth;  
+She thinks he could not die, he is not dead.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her voice is stopp'd, her joints forget to bow,  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her eyes are mad, that they have wept till now.'
 
 'Upon his hurt she looks so stedfastly,  
