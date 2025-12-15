@@ -14,24 +14,7 @@ Before we enter upon any examination of the dissertation of Monsieur Guigniaut, 
 
 The earliest notice we find of Venus, is under the name of Mylitta, Mithra, Alitta, etc. By this word, according to the interpretation of Julius Firmicus, the orientals, who represent all the operations of nature allegorically, meant to designate the vivifying power of the universe. Those writers who consider fire the first principle of all things, speak of Venus as the daughter of Cœlus or Ouranos; the Neptunians say she sprang from the foam of the sea; others call her the daughter of Jupiter and Dione. Whatever was her origin, she was from the beginning thought to preside over the union of the sexes; and is spoken of by the mystical Orpheus, as reason is by Lao-tseu, the celebrated Chinese philosopher, as the mother of the universe --- πάντα γὰρ ἐκ σέθεν ἐστὶν, says he, in his hymn to this goddess. Servius also observes to the same effect --- "Dicunt ipsam Venerem esse matrem Deûm." So great and universal was the power of Venus, that she exercised authority even over the fates, the iron goddesses, who resisted all other rule.
 
-From Assyria the worship of Venus passed to Phoenicia, and 
-thence to Cyprus. This worship, which in the course of time dege- 
-nerated into prostitution, was pure at first, and offered up to Venus 
-Urania, a virgin goddess. Herodotus speaks of a shameful 
-custom which had insinuated itselfat Babylon, into the ceremonies 
-of this worship, and afterwards prevailed at Heliopolis of Phoenicia, 
-and at Aphka (Hodie Afka) near Mount Lebanon. M. Larcher says 
-that Constantine destroyed the temples, and abolished the infamous 
-custom in the last two cities: but in this he is perfectly mistaken ; 
-for, whatever may have been the fate of the temples, the custom 
-still survives, in the midst of other manners, and other creeds. 
-Zosimus, who passes over the practice to which we have alluded, 
-amuses his readers with the fabulous history of a globe of fire or 
-lighted torch, which appeared in the air, in the environs of the 
-temple ; and gravely says, that the offerings made to the goddess 
-were thrown into a lake close at hand, and that such as were 
-accepted sunk to the bottom, while those which the divinity of the 
-place refused, floated upon the top. 
+From Assyria the worship of Venus passed to Phœnicia, and thence to Cyprus. This worship, which in the course of time degenerated into prostitution, was pure at first, and offered up to Venus Urania, a virgin goddess. Herodotus speaks of a shameful custom which had insinuated itself at Babylon, into the ceremonies of this worship, and afterwards prevailed at Heliopolis of Phœnicia, and at Aphka (Hodie Afka) near Mount Lebanon. Mr. Larcher says that Constantine destroyed the temples, and abolished the infamous custom in the last two cities: but in this he is perfectly mistaken; for, whatever may have been the fate of the temples, the custom still survives, in the midst of other manners, and other creeds. Zosimus, who passes over the practice to which we have alluded, amuses his readers with the fabulous history of a globe of fire or lighted torch, which appeared in the air, in the environs of the temple; and gravely says, that the offerings made to the goddess were thrown into a lake close at hand, and that such as were accepted sunk to the bottom, while those which the divinity of the place refused, floated upon the top.
 
 The remarks of Mr. Larcher on the name Salambo, which ac- 
 cording to Hesychius, the Babylonians applied to Venus, are very 
