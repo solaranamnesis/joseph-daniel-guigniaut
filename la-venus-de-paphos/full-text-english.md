@@ -4,7 +4,9 @@
 
 ### Professor of Greek Literature, etc.
 
-## Paris. 1829.
+### Extract from _The Monthly Review_, Vol. 11.
+
+## Paris. June 1829.
 
 ---
 
