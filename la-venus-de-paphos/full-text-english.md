@@ -24,8 +24,49 @@ This Venus, in fact, was known under many different names. According to Cicero, 
 
 This festival was observed in nearly all the countries of the East, to perpetuate, according to the mythologists, the remembrance of the loves of Venus and Adonis. The physical interpretation of this fable we leave to others, persuaded that whatever meaning we might attribute to it, a hundred other interpretations equally probable might be discovered. We shall merely observe that a statue of this goddess, supposed to represent the earth when stripped of its beauty by winter, was found on Mount Libanus, with the left hand enveloped in the drapery, the head covered, the countenance sad; and it was even supposed by some, that tears were represented trickling from the eyes.
 
-Shakespeare, who penetrated with philosophical acuteness into 
-the depths of ancient fable, and breathed a new life into worn- 
-out legends, has entered with his accustomed truth to nature, into 
-the spirit of this magnificent fable. The goddess is represented 
-wandering about the mountains, dejected, apprehensive, sorrowful 
+Shakespeare, who penetrated with philosophical acuteness into the depths of ancient fable, and breathed a new life into worn-out legends, has entered with his accustomed truth to nature, into the spirit of this magnificent fable. The goddess is represented wandering about the mountains, dejected, apprehensive, sorrowful for the absence of Adonis. She commences her search with the dawn.
+
+'Lo! here the gentle lark, weary of rest,  
+From his moist cabinet mounts up on high,  
+And wakes the morning, from whose silver breast  
+The sun ariseth in his majesty:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Who doth the world so gloriously behold,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The cedar-tops and hills seem burnish'd gold.
+
+_Venus_ salutes him with this fair good-morrow:  
+O thou clear God, and patron of all light!  
+From whom each Lamp and shining Star doth borrow  
+The beauteous influence, that makes him bright:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;There lives a son, that suck'd an earthly mother,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;May lend thee light, as thou dost lend to other.
+
+This said, she hasteth to a myrtle grove,  
+Musing the morning is so much o'er-worn;  
+And yet she hears no tidings of her love:  
+She hearkens for his hounds, and for his horn;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Anon she hears them chaunt it lustily,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And all in haste she coasteth to the cry.' --- p. 85.
+
+Proceeding some little distance, she discovers, by the fierce and eager baying of the hounds, that her lover is engaged in no gentle sport, but attacking the boar, the bear, or the lion. Sad forebodings now throng on her heart. She trembles, and remains rooted to the spot. Anon she sees the tremendous boar dashing by, his snout covered with foam and blood, and bearing all the marks of having been engaged in a fierce struggle.
+
+'And with that word, she spy'd the hunted boar,  
+Whose frothy mouth bepainted all with red,  
+Like milk and blood being mingled both together,  
+A second fear thro' all her sinews spread,  
+Which madly hurries her she knows not whither.' --- p. 86.
+
+Her terrors now increasing every moment, are presently after enhanced by perceiving the wounded and discomfited hounds roaming about without their master. Anticipating the worst --- 
+
+'As faulcon to the lure, away she flies:  
+The grass stoops not, she treads on it so light,  
+And in her haste unfortunately spies  
+The foul boar's conquest on her fair delight.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Which seen her eyes, as murder'd with the view,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Like stars asham'd of day, themselves withdrew.
+
+Or as the snail, whose tender horns being hit,  
+Shrinks backward in his shelly cave with pain,  
+And there, all smother'd up, in shade doth sit,  
+Long after fearing to creep forth again:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;So, at his bloody view her eyes are fled  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Into the deep dark cabins of her head.
