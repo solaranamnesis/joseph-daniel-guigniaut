@@ -10,19 +10,29 @@
 
 The student of human nature cannot with impunity neglect researches into antiquity. To obtain just notions of society as it now exists, we must trace it from its feeble beginnings, to its greatest known development, watch its increase, its modifications, its vicissitudes, and learn exactly to appreciate every successive form through which it has paseed. It is unquestionably an easy matter to affect a disdain for the wanderings of man's intellect, before the light of truth burst in upon it. But this contempt, even were it real and well-founded, will not satisfy the mind. It is more agreeable to understand than to despise our forefathers; and therefore, researches into their opinions, particularly such as regarded their religion and philosophy, possess peculiar attractions for every individual above a mere newspaper or novel reader.
 
-Before we enter upon any examination of the dissertation of Monsieur
-Guigniaut, it may, perhaps, be useful to trace from other sources, a
-rapid sketch of the history of the worship of beauty, which, according
-to the best authorities, sprung up together with most other forms of
-superstition, in the East, and gradually found its way into Greece,
-where it attained a perfection and consistency unknown to its
-original inventors. About the middle of the last century, the
-Academie des Inscriptions et Belles Lettres, of Paris, proposed as
-the subject of a prize essay, "An inquiry concerning the various
-names and attributes of Venus, among the different nations of Greece
-and Italy; the origin and reason of those attributes; the nature
-of her worship; the celebrated temples, statues, and pictures of
-this goddess; and the artists who had rendered themselves cele-
-brated by representing her." The essay which obtained the prize,
-was that of Monsieur Larcher, the well-known translator of Herodotus.
-With some taste, and immense learning, he amassed almost every-
+Before we enter upon any examination of the dissertation of Monsieur Guigniaut, it may, perhaps, be useful to trace from other sources, a rapid sketch of the history of the worship of beauty, which, according to the best authorities, sprung up together with most other forms of superstition, in the East, and gradually found its way into Greece, where it attained a perfection and consistency unknown to its original inventors. About the middle of the last century, the Academie des Inscriptions et Belles Lettres, of Paris, proposed as the subject of a prize essay, "An inquiry concerning the various names and attributes of Venus, among the different nations of Greece and Italy; the origin and reason of those attributes; the nature of her worship; the celebrated temples, statues, and pictures of this goddess; and the artists who had rendered themselves celebrated by representing her." The essay which obtained the prize, was that of Monsieur Larcher, the well-known translator of Herodotus. With some taste, and immense learning, he amassed almost everything respecting this goddess, to be found in the works of the ancients; and if he did not succeed in composing an agreeable book, his judgment, not his knowledge, was to blame. Hyginus, Apollodorus, and the other ancient mythologists, have left us brief abstracts of the fables concerning Venus; and Tacitus, with that energetic conciseness for which he is remarkable, has given in one page an outline of the whole history of her worship. Before we come to this passage, however, we shall cast a glance over the history of its migration westward through Asia, taking up the thread of the narrative in Assyria.
+
+The earliest notice we find of Venus, is under the name of Mylitta, Mithra, Alitta, etc. By this word, according to the interpretation of Julius Firmicus, the orientals, who represent all the operations of nature allegorically, meant to designate the vivifying power of the universe. Those writers who consider fire the first principle of all things, speak of Venus as the daughter of Cœlus or Ouranos; the Neptunians say she sprang from the foam of the sea; others call her the daughter of Jupiter and Dione. Whatever was her origin, she was from the beginning thought to preside over the union of the sexes; and is spoken of by the mystical Orpheus, as reason is by Lao-tseu, the celebrated Chinese philosopher, as the mother of the universe --- πάντα γὰρ ἐκ σέθεν ἐστὶν, says he, in his hymn to this goddess. Servius also observes to the same effect --- "Dicunt ipsam Venerem esse matrem Deûm." So great and universal was the power of Venus, that she exercised authority even over the fates, the iron goddesses, who resisted all other rule.
+
+From Assyria the worship of Venus passed to Phoenicia, and 
+thence to Cyprus. This worship, which in the course of time dege- 
+nerated into prostitution, was pure at first, and offered up to Venus 
+Urania, a virgin goddess. Herodotus speaks of a shameful 
+custom which had insinuated itselfat Babylon, into the ceremonies 
+of this worship, and afterwards prevailed at Heliopolis of Phoenicia, 
+and at Aphka (Hodie Afka) near Mount Lebanon. M. Larcher says 
+that Constantine destroyed the temples, and abolished the infamous 
+custom in the last two cities: but in this he is perfectly mistaken ; 
+for, whatever may have been the fate of the temples, the custom 
+still survives, in the midst of other manners, and other creeds. 
+Zosimus, who passes over the practice to which we have alluded, 
+amuses his readers with the fabulous history of a globe of fire or 
+lighted torch, which appeared in the air, in the environs of the 
+temple ; and gravely says, that the offerings made to the goddess 
+were thrown into a lake close at hand, and that such as were 
+accepted sunk to the bottom, while those which the divinity of the 
+place refused, floated upon the top. 
+
+The remarks of Mr. Larcher on the name Salambo, which ac- 
+cording to Hesychius, the Babylonians applied to Venus, are very 
+ingenious. They could not, says he, have made use of this term, since 
