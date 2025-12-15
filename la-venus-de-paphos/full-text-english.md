@@ -31,16 +31,16 @@ From his moist cabinet mounts up on high,
 And wakes the morning, from whose silver breast  
 The sun ariseth in his majesty:  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Who doth the world so gloriously behold,  
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The cedar-tops and hills seem burnish'd gold.
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The cedar-tops and hills seem burnish'd gold.'
 
-_Venus_ salutes him with this fair good-morrow:  
+'_Venus_ salutes him with this fair good-morrow:  
 O thou clear God, and patron of all light!  
 From whom each Lamp and shining Star doth borrow  
 The beauteous influence, that makes him bright:  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;There lives a son, that suck'd an earthly mother,  
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;May lend thee light, as thou dost lend to other.
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;May lend thee light, as thou dost lend to other.'
 
-This said, she hasteth to a myrtle grove,  
+'This said, she hasteth to a myrtle grove,  
 Musing the morning is so much o'er-worn;  
 And yet she hears no tidings of her love:  
 She hearkens for his hounds, and for his horn;  
@@ -62,11 +62,88 @@ The grass stoops not, she treads on it so light,
 And in her haste unfortunately spies  
 The foul boar's conquest on her fair delight.  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Which seen her eyes, as murder'd with the view,  
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Like stars asham'd of day, themselves withdrew.
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Like stars asham'd of day, themselves withdrew.'
 
-Or as the snail, whose tender horns being hit,  
+'Or as the snail, whose tender horns being hit,  
 Shrinks backward in his shelly cave with pain,  
 And there, all smother'd up, in shade doth sit,  
 Long after fearing to creep forth again:  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;So, at his bloody view her eyes are fled  
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Into the deep dark cabins of her head.
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Into the deep dark cabins of her head.'
+
+'Where they resign'd their office and their light 
+To the disposing of her troubled brain: 
+Who bids them still consort with ugly night, 
+And never wound the heart with looks again: 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Who like a king perplexed in his throne, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;By their suggestions gives a deadly groan.'
+
+'Whereat each tributary subject quakes, 
+As when the wind, imprison'd in the ground, 
+Struggling for passage, earth's foundation shakes, 
+Which with cold terrors doth men's minds confound. 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;This mutiny each part doth so surprise, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That from their dark beds, once more, leap her eyes.'
+
+'And, being open'd, threw unwilling sight 
+Upon the wide wound, that the boar had trench'd 
+In his soft flank; whose wonted lilly white 
+With purple tears, that his wound wept, was drench'd. 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;No flower was nigh, no grass, herb, leaf, or weed, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;But stole his blood, and seem'd with him to bleed.'
+
+'This solemn sympathy poor Venus noteth, 
+Over one shoulder doth she hang her head; 
+Dumbly she passions, frantickly she doteth; 
+She thinks he could not die, he is not dead. 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her voice is stopp'd, her joints forget to bow, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her eyes are mad, that they have wept till now.'
+
+'Upon his hurt she looks so stedfastly, 
+That her sight dazzling, makes the wound seem three; : 
+And then she reprehends her mangling eye, 
+That makes more gashes where no breach should be ; 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;His face seems twain, each several limb is doubled, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;For oft the eye mistakes, the brain being troubled.'
+
+'My tongue cannot express my grief for one; 
+And yet (quoth she) behold two Adons dead ! 
+My sighs are blown away, my salt tears gone, 
+Mine eyes are turned to fire, my heart to lead : 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Heavy hearts lead melt at mine eyes as fire, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;So shall I die by drops of hot desire.'
+
+'Alas! poor world, what treasure hast thou lost! 
+What face remains alive that's worth the viewing ? 
+Whose tongue is musick now? what canst thou boast 
+Of things long since, or any thing ensuing ? 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The flowers are sweet, their colours fresh and trim, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;But true sweet beauty liv'd and dy'd in him.'
+
+'Bonnet, or veil, henceforth no creature wear ; 
+Nor sun, nor wind will ever strive to kiss you : 
+Having no fair to lose, you need not fear; 
+The sun doth scorn you, and the wind doth hiss you. 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;But when Adonis liv'd, sun and sharp air 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Lurk'd like two thieves, to rob him of his fair.'
+
+'And therefore wou'd he put his bonnet on, 
+Under whose brim the gaudy sun wou'd peep ; 
+The wind wou'd blow it off, and being gone, 
+Play with his locks, then wou'd Adonis weep : 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And straight, in pity of his tender years, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;They both wou'd strive who first shou'd dry his tears.'
+
+'To see his face, the lion walks along 
+Behind some hedge, because he wou'd not fear him ; 
+To recreate himself when he hath sung, 
+The tyger wou'd be tame, and gently hear him : 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;If he had spoke, the wolf wou'd leave his prey, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And never fright the silly lamb that day.'
+
+'When he beheld his shadow in a brook, 
+There fishes spread on it their golden gills: 
+When he was by, the birds such pleasure took, 
+That some would sing, some other in their bills 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Would bring him mulberries, and ripe red cherries ; 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;He fed them with his sight, they him with berries.'
