@@ -278,64 +278,48 @@ Of alienated Judah."
 
 We here discover, says Mr. Guigniaut, through the mists of Grecian fable, the real origin and character of the Paphian worship. It was an Asiatic and Phœnician worship, in which sadness was mingled with pleasure, as we may infer from the very names of Cinyras and Adonis, which lead us to believe that at some very early period, Cyprus was colonized by the Phœnicians. It was they who built the ancient Golgi, a name which bears evident marks of its Phœnician origin; who instituted both here and at the ancient Paphos, the worship of Venus Urania, long before the Arcadian Agapenor, on his return from Troy, had built the new city, and adorned it with superb temples. In proof of the justness of Milton's views on this subject, the most learned mythologists of our own days, represent Venus as the great goddess of nature, generally identified with the moon, but occasionally, in the opinion of Mr. Guigniaut, with the planet Venus, the morning star, Aurora.
 
-From Cyprus, or Cythera, the worship of Venus passed into the 
-Peloponnesus and the other parts of Greece, where it was soon con- 
-founded with that of the ancient national goddess, Aphrodite. This 
-is the ordinary way of tracing the history of this worship, But if 
-the Greeks had already an Aphrodite, a goddess embodying the 
-“erga of beauty, and presiding over the empire of love, where- 
+From Cyprus, or Cythera, the worship of Venus passed into the Peloponnesus and the other parts of Greece, where it was soon confounded with that of the ancient national goddess, Aphrodite. This is the ordinary way of tracing the history of this worship. But if the Greeks had already an Aphrodite, a goddess embodying the principle of beauty, and presiding over the empire of love, wherefore borrow the Astarte of the Orientals, and mingle up a coarser and more material fable with their own exquisite legend? We cannot, for our part, discover the grounds upon which mythologists build up this specious theory, and are rather disposed to believe that although the Greeks may have naturalized some of the fables of the Orientals, the original type of the goddess existed among them previous to all communication with the East. Before we pass, however, from Cyprus to the continent, we will present the reader with a short description of the temple of Venus, at Cyprus:--- 
 
-ore borrow the Astarte of the Orientals, and mingle up a coarser 
-and more material fable with their own exquisite legend? We 
-cannot, for our part, discover the grounds upon which mythologists 
-build up this specious theory, and are rather disposed to believe 
-that although the Greeks may have naturalized some of the fables 
-of the Orientals, the original type of the goddess existed among 
-them previous to all communication with the East. Before we 
-pass, however, from Cyprus to the continent, we will present the 
-reader with ashort description of the temple of Venus, at Cyprus :— 
+--- "With speed the two immortals came  
+To the grand mansion of the Cyprian dame,  
+Which crippled Vulcan raised, when first he led  
+The Paphian goddess to his nuptial bed.  
+The gate they pass, and to the dome retire,  
+Where Venus oft regales the god of fire:  
+He to his forge had gone at early day,  
+A floating isle contained it on the bay,  
+Here wond'rous works by fire's fierce power he wrought,  
+And on his anvil to perfection brought.  
+Fronting the door, all lovely and alone,  
+Sat Cythera on a polished throne.  
+Adown the shoulders of the heavenly fair  
+In easy ringlets flowed her yellow hair;  
+And with a golden comb, in matchless grace,  
+She taught each lock its most becoming place."
 
-—‘* With speed the two iinmortals came 
-To the grand mansion of the Cyprian dame, 
-Which crippled Vulcan raised, when first he led 
-The Paphian goddess to his nuptial bed. 
-The gate they pass, and to the dome retire, 
-Where Venus oft regales the god of fire: 
-He to his forge had gone at early day, 
-A floating isle contained it on the bay, 
-Here wond’rous works by fire’s fierce power he wrought, 
-And on his anvil to perfection brought. 
-Fronting the door, all lovely and alone, 
-Sat Cythera on a polished throne. 
-Adown the shoulders of the heavenly fair 
-In easy ringlets flowed her yellow hair; 
-And with a golden comb, in matchless grace, 
-She taught each lock its most becoming place.” 
-
-Being thus introduced to the goddess and her dwelling hy one 
+Being thus introduced to the goddess and her dwelling by one 
 poet, Apollonius Rhodius, we shall proceed to borrow from another 
 an account of the site and appearance of this palace. It was si- 
 tuated, says Claudian, on the eastern side of the island, on a lofty 
 mountain, inaccessible to men. The rigour of winter, the burning 
 heats of summer, are never felt upon this mountain; the winds fear 
-to approach it ; and a perpetual spring prevails there. A spacious 
+to approach it; and a perpetual spring prevails there. A spacious 
 plain occupies the summit, and is enclosed by a wall of gold, which 
 prohibits the entrance of mortals. Flowers of eternal beauty 
-sprin 2 Mer gent and their exquisite scents are carried hither 
-it 
-and thither by the rm yrs. Ina dark wood, which stands on one 
-= of the plain, birds of the most lovely notes sing perpetually. 
-ven the very trees are here capable of love, and entertain and are 
+spring up spontaneously, and their exquisite scents are carried hither 
+and thither by the zephyrs. In a dark wood, which stands on one 
+part of the plain, birds of the most lovely notes sing perpetually. 
+Even the very trees are here capable of love, and entertain and are 
 the objects of tender sentiments. The palm tree bends oyer its be- 
-loved; poplar sighs for pone plane for plane; and a soft murmur 
-pervades the wood. ‘Two fountains flow from this spot: the one 
+loved; poplar sighs for poplar; plane for plane; and a soft murmur 
+pervades the wood. Two fountains flow from this spot: the one 
 sweet, the other so bitter that even honey is rendered disagreeable 
 when mingled with its waters. In these fountains Cupid, it is said, 
 dips his arrows. A thousand little loves, with their quivers on their 
 shoulders, sport upon the banks. These little deities are all bre- 
 thren, and resemble each other. They are the children of the 
 nymphs. Cupid alone is the son of Venus. It is he, who, with 
-his bow in his hand, rules over both heaven and earth ; it is he 
+his bow in his hand, rules over both heaven and earth; it is he 
 who wounds princes with his arrows, while the other Loves shoot their 
 darts at inferior persons. In those lovely regions reign liberty, the 
 placable anger of lovers, vigils steeped in wine, tears unshed, the 
