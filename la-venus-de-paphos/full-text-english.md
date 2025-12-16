@@ -311,3 +311,258 @@ To whose bright image nightly by the moon,
 ** Aous was also a river of Chaonia. Palmer A Grentemenil. Ant. 
 Greece. Descrip. p. 144.' 
 
+Sidonian virgins paid t! eir vows and songs, 
+
+In Sion also not unsury, where stood 
+
+Her temple on the offensive mountain, built, 
+By that uxorious King, whose heart tho’ large, 
+Beguiled by fair idolatresses, fell 
+
+To idols foul. Thammuz came next behind, 
+Whose annual wound in Lebanon allured 
+
+The Syrian damsels to lament his fate, 
+
+In amorous ditties all a summer’s day. 
+
+While smooth Adonis from his native rock, 
+
+Ran purple to the sea, supposed with blood 
+Of Thammuz yearly wounded : the love-tale 
+Infected Sion’s daughters with like heat, 
+Whose wanton passions in the sacred porch 
+Ezekiel saw, when by the vision led 
+
+His eye surveyed the dark idolatries 
+
+Of alienated Judah.” 
+
+
+We here discover, says M. Guigniaut, through the mists of 
+Grecian fable, the real origin and character of the Paphian wor- 
+ship. It wasan Asiatic and Pheenician worship, in which sadness 
+was mingled with pleasure, as we may infer from the very names 
+of Cinyras and Adonis, which lead us to believe that at some very 
+early period, Cyprus was colonized by the Pheenicians. It was they 
+who built the ancient Golgi, a name which bears evident marks of 
+its Pheenician origin ; who instituted both here and at the ancient 
+Paphos, the worship of Venus Urania, long before the Arcadian 
+Agapenor, on his return from Troy, had built the new city, and 
+adorned it with superb temples. In proof of the justness of Milton’s 
+views on this subject, the most learned mythologists of our own 
+days, represent Venus as the great goddess of nature, generally 
+identified with the moon, but occasionally, in the opinion of 
+M. Guigniaut, with the planet Venus, the morning star, 
+Aurora. 
+
+From Cyprus, or Cythera, the worship of Venus passed into the 
+Peloponnesus and the other parts of Greece, where it was soon con- 
+founded with that of the ancient national goddess, Aphrodite. This 
+is the ordinary way of tracing the history of this worship, But if 
+the Greeks had already an Aphrodite, a goddess embodying the 
+“erga of beauty, and presiding over the empire of love, where- 
+
+ore borrow the Astarte of the Orientals, and mingle up a coarser 
+and more material fable with their own exquisite legend? We 
+cannot, for our part, discover the grounds upon which mythologists 
+build up this specious theory, and are rather disposed to believe 
+that although the Greeks may have naturalized some of the fables 
+of the Orientals, the original type of the goddess existed among 
+them previous to all communication with the East. Before we 
+pass, however, from Cyprus to the continent, we will present the 
+reader with ashort description of the temple of Venus, at Cyprus :— 
+
+
+
+
+
+
+
+
+Worship of Venus. 
+
+
+—‘* With speed the two iinmortals came 
+
+To the grand mansion of the Cyprian dame, 
+Which crippled Vulcan raised, when first he led 
+The Paphian goddess to his nuptial bed. 
+
+The gate they pass, and to the dome retire, 
+Where Venus oft regales the god of fire: 
+
+He to his forge had gone at early day, 
+
+A floating isle contained it on the bay, 
+
+Here wond’rous works by fire’s fierce power he wrought, 
+And on his anvil to perfection brought. 
+
+Fronting the door, all lovely and alone, 
+
+Sat Cythera on a polished throne. 
+
+Adown the shoulders of the heavenly fair 
+
+In easy ringlets flowed her yellow hair; 
+
+And with a golden comb, in matchless grace, 
+She taught each lock its most becoming place.” 
+
+
+Being thus introduced to the goddess and her dwelling hy one 
+poet, Apollonius Rhodius, we shall proceed to borrow from another 
+an account of the site and appearance of this palace. It was si- 
+tuated, says Claudian, on the eastern side of the island, on a lofty 
+mountain, inaccessible to men. The rigour of winter, the burning 
+heats of summer, are never felt upon this mountain; the winds fear 
+to approach it ; and a perpetual spring prevails there. A spacious 
+plain occupies the summit, and is enclosed by a wall of gold, which 
+
+
+prohibits the entrance of mortals. Flowers of eternal beauty 
+sprin 2 Mer gent and their exquisite scents are carried hither 
+it 
+
+
+and thither by the rm yrs. Ina dark wood, which stands on one 
+= of the plain, birds of the most lovely notes sing perpetually. 
+
+ven the very trees are here capable of love, and entertain and are 
+the objects of tender sentiments. The palm tree bends oyer its be- 
+loved; poplar sighs for pone plane for plane; and a soft murmur 
+pervades the wood. ‘Two fountains flow from this spot: the one 
+sweet, the other so bitter that even honey is rendered disagreeable 
+when mingled with its waters. In these fountains Cupid, it is said, 
+dips his arrows. A thousand little loves, with their quivers on their 
+shoulders, sport upon the banks. These little deities are all bre- 
+thren, and resemble each other. They are the children of the 
+nymphs. Cupid alone is the son of Venus. It is he, who, with 
+his bow in his hand, rules over both heaven and earth ; it is he 
+who wounds princes with his arrows, while the other Loves shoot their 
+darts at inferior persons. In those lovely regions reign liberty, the 
+placable anger of lovers, vigils steeped in wine, tears unshed, the 
+sweet paleness of lovers, their timid boldness, agreeable fears, and 
+insecure pleasures. Broken vows flit about upon their light wings, 
+and proud, self-confiding youth forbids age to enter the grove. The 
+palace of the goddess reflects the rays of the sun in a thousand 
+ways; itis constructed of gold and jewels with the greatest art ; 
+its beams are of emerald, its pillars of jacinth, its walls of beryl, 
+
+rR 2 
+
+
+
+
+
+242 Worship of Venus. 
+
+
+its threshold of jasper, and its floors of agate. The a is 
+filled with all the perfumes of Arabia. The Graces stand at the 
+side of the goddess, and while one of them pours out the nectar, 
+the other two adjust her ringlets in an easy negligent manner, which 
+enchants the eye. 
+
+Entering the Peloponnesus we find at Lacedemon, a round 
+temple dedicated to Olympian Jupiter and Venus. Another temple 
+in the same city was sacred to the worship of Venus-Juno. At 
+Megalopolis, in Arcadia, at Tegea, at Olympia, were temples de- 
+dicated to this goddess; and at Elis, near the forum, and behind 
+the portico erected from the spoils of the Corcyreans, there was 
+also a temple of Venus, with a small estate belonging to it. The 
+statue of the goddess, formed of gold and ivory by Phidias, stood 
+with one foot upon a tortoise, to signify, says Plutarch, that married 
+women should remain at home and be silent. At Sicyon the wor- 
+ship of Venus was conducted in a very extraordinary manner. To 
+cast a kind of mystery around the rites, no person was permitted to 
+enter the temple but the sacristan and priestess, who, while they offi- 
+ciated in the temple, were compelled to lead a life of rigid chastity. 
+The worshippers were constrained to kneel on the threshold of the 
+temple, and from thence offer their vows to the unseen deity within. 
+A very learned writer supposes that this custom was derived from 
+Egypt, where, from the melancholy character of the people, it was 
+thought that fasting and abstaining even from lawftl pleasures 
+were agreeable to heaven. 
+
+Venus had several templesat Athens. In the quarterof the city 
+called ‘‘ the gardens,” there was a temple, near which the goddess 
+was represented by a quadrangular stone, with an inscription en- 
+graven upon it, in which Venus was said to be more ancient than 
+the Fates. Above the Ceramicus was another temple to Venus, 
+containing a statue from the hand of Phidias. One of the 
+temples of this goddess was dedicated to her under the name 
+of Venus Psithyros, or the whisperer, because the women who 
+addressed their vows to her, whispered in the ear of the statue. 
+Upon this practice Seneca remarks,—* Turpissima vota diis insus- 
+urrunt,si quis ad moverit auem, conticescent, et quod scire hominem 
+nolunt, des narrant.” One of the three parts of the Pirzeus was 
+called Aphrodisium, and probably derived its name from the 
+temple erected there by Conon, in memory of the victory ob- 
+tained over the Lacedemonians, near Cnidos in Caria. ’ 
+
+The epithets of this goddess were numerous and significant ; but 
+we shall abstain from repeating them. From her temple, however, 
+on mount Eryx in Sicily, she obtained the epithet Erycina, which 
+occurs constantly in the works of the ancient poets. Mount 
+Eryx is near the sea, between Drepanum and Panormus, in that 
+part of Sicily which faces Italy. Upon the summit of this moun- 
+tain, which is exceedingly steep, on the the side of Drepanum, 
+and, next to Etna, the highest in the whole island, was a small 
+
+
+
+
+
+Worship of Venus. 243 
+
+
+plain, which, according to tradition, was artificially enlarged, by 
+edalus. Upon this plain stood the famous temple of Venus, 
+overlooking the city of Drepanum, which was built on the slope 
+of the mountain, where Trapani del Monte now stands. This 
+temple was scarcely less rich than that of Paphos; and among 
+its curiosities, which consisted of antique phials, crateras, censers, 
+&c., was a honey-comb in gold, said to be the work of Dedalus. 
+Diodorus of Sicily, who enlarges with complacency upon this 
+great ornament of his native country, remarks, that no person 
+could fail to admire the glory of this temple. Other fanes, says 
+he, have acquired celebrity, but the revolutions of time have 
+humbled or destroyed them. This temple alone, founded in the 
+remotest antiquity, has gone on increasing in consideration 
+to the present day. To say nothing of the devotion of Eryx, 
+(a king who, according to some tradition, was founder of the 
+temple), AZneas, landing in Sicily, on his way to Italy, adorned 
+this temple with a number of offerings. The Sicanians continued 
+to pay divine honours to the goddess during many generations, and 
+perpetually adorned her temple with magnificent presents. When 
+the Carthaginians made themselves masters of the island, they 
+treated the goddess with particular marks of respect; and, to 
+conclude, the Romans, having added Sicily to their empire, sur- 
+passed all their predecessors, in their veneration of the deity of 
+this temple. This, however, was to be expected; for since they 
+pretended to derive their origin from Venus, and had filled their 
+city with temples, erected to her, to whom they thought their 
+success in wars and peace was to be attributed, it was natural 
+they should honour her temples, wherever they might be found. 
+The consuls, the pretors, in one word, all the magistrates who 
+come into this island, offer magnificent sacrifices, and pay extra- 
+ordinary honours to the goddess; and as soon as they arrive at 
+mount Eryx, lay aside all the insignia of power, in order to amuse 
+themselves gaily and at their ease, with their mistresses, that they 
+may thus render the goddess propitious. The Roman senate, 
+with singular piety, have issued a decree, authorizing seventeen of 
+the most faithful cities in Sicily, to wear gold in honour of tie 
+goddess, and to guard her temple with two hundred soldiers. 
+
+Both the inhabitants and strangers daily offered sacrifices to 
+Venus, on the great altar of the temple, which was constructed in 
+the open air. ‘These sacrifices generally occupied the worshippers 
+from morning until night, and must have produced large heaps of 
+cinders, charcoal, &c., but Elian, with true Pagan credulity, 
+informs us that nothing of all these was visible next morning, 
+but that a heavy dew was upon the ground, and fresh grass which 
+had sprang up during the night. To render matters still more 
+astonishing, he adds that no force was necessary to bring the 
+victims to the altar, but that the animals, pleased to be sacrificed 
