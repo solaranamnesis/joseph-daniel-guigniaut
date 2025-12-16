@@ -147,3 +147,33 @@ When he was by, the birds such pleasure took,
 That some would sing, some other in their bills  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Would bring him mulberries, and ripe red cherries;  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;He fed them with his sight, they him with berries.'
+
+The goddess continues her lamentation; and with a conceit not altogether in keeping with the spirit of Greek poetry, imagines the wild beast to have become enamoured of the beautiful form of Adonis, and to have rushed upon him to kiss him. Pursuing this idea she says:---
+
+' 'Tis true, true, true, thus was _Adonis_ slain,  
+He ran upon the boar with his sharp spear,  
+Who wou'd not whet his teeth at him again,  
+But by a kiss thought to persuade him there:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And nousling in his flank, the loving swine  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Sheath'd unaware his tusk in his soft groin.
+
+'Had I been tooth'd like him, I must confess,  
+With kissing him, I shou'd have kill'd him first.  
+But he is dead, and never did he bless  
+My mouth with his; the more am I accurs'd.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;With this she falleth in the place she stood,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And stains her face with his congealed blood.
+
+'She looks upon his lips, and they are pale;  
+She takes him by the hand, and that is cold;  
+She whispers in his ear a heavy tale,  
+As if he heard the woful words she told:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;She lifts the coffer-lids that close his eyes,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Where, lo! two lamps burnt out in darkness lies.
+
+'Two glasses, where herself herself beheld  
+A thousand times, and now no more reflect;  
+Their virtue lost, wherein they late excel'd,  
+And every beauty rob'd of his effect.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Wonder of time! (quoth she) this is my spight,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That, you being dead, the day shou'd yet be light.
