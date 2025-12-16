@@ -178,89 +178,75 @@ And every beauty rob'd of his effect.
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Wonder of time! (quoth she) this is my spight,  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That, you being dead, the day shou'd yet be light.'
 
-'Since thou art dead, lo! here I y 
-Sorrow on love hereafter shall attend ; 
-It shall be waited on with jealousy, 
-Find sweet beginning, but unsavoury end, 
-Ne'er settled equally to high or low; 
-That all love's pleasures shall not match his woe. 
+'Since thou art dead, lo! here I prophesy  
+Sorrow on love hereafter shall attend;  
+It shall be waited on with jealousy,  
+Find sweet beginning, but unsavoury end,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ne'er settled equally to high or low;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That all love's pleasures shall not match his woe.'
 
-'It shall be fickle, false, and full of fraud, 
-And shall be blasted in a breathing while, 
-The bottom poison, and the top o'er-straw'd 
-With sweets, that shall the sharpest sight beguile. 
-The strongest body shall it make most weak, 
-Strike the wise dumb, and teach the fool to speak. 
+'It shall be fickle, false, and full of fraud,  
+And shall be blasted in a breathing while,  
+The bottom poison, and the top o'er-straw'd  
+With sweets, that shall the sharpest sight beguile.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The strongest body shall it make most weak,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Strike the wise dumb, and teach the fool to speak.'
 
-It shall be sparing, and too full of riot, 
+'It shall be sparing, and too full of riot,  
+Teaching decrepit age to tread the measures;  
+The staring ruffian shall it keep in quiet,  
+Pluck down the rich, inrich the poor with treasures;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;It shall be raging mad, and silly mild,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Make the young old, the old become a child.'
 
-Teaching decrepit age to tread the measures ; 
+'It shall suspect where is no cause of fear;  
+It shall not fear, where it should most mistrust;  
+It shall be merciful and too severe,  
+And most deceiving when it seems most just:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Perverse, it shall be when it seems most toward,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Put fear to valour, courage to the coward.'
 
-The staring ruffian shall it keep in quiet, 
+'It shall be cause of war and dire events,  
+And set dissention 'twixt the son and sire;  
+Subject and servile to all discontents,  
+As dry combustious matter is to fire.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Sith, in his prime, death doth my love destroy,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;They that love best their love shall not enjoy.'
 
-Pluck down the rich, inrich the poor with treasures ; 
-It shall be raging mad, and silly mild, 
-Make the young old, the old become a child. 
+'By this the boy that by her side lay kill'd,  
+Was melted like a vapour from her sight,  
+And in his blood, that on the ground lay spill'd,  
+A purple flower sprung up chequer'd with white,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Resembling well his pale cheeks and the blood,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Which in round drops upon their whiteness stood.'
 
-‘It shall suspect where is no cause of fear; 
-It shall not fear, where it should most mistrust ; 
-It shall be merciful and too severe, 
-And most deceiving when it seems most just: 
-Perverse,jt shall be when it seems most toward, 
-Put fear to valour, courage to the coward. 
+'She bows her head the new-sprung flower to smell,  
+Comparing it to her _Adonis_' breath:  
+And says, within her bosom it shall dwell,  
+Since he himself is reft from her by death:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;She crops the stalk, and in the breach appears  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Green dropping sap, which she compares to tears.'
 
-It shall be cause of war and dire events, 
-And set dissention 'twixt the son and sire; 
-Subject and servile to all discontents, 
-As dry combustious matter is to fire. 
-Sith, in his prime, death doth my love destroy, 
-They that love best their love shall not enjoy. 
+'Poor flower! (quoth she) this was thy father's guise,  
+(Sweet issue of a more sweet-smelling sire)  
+For every little grief to wet his eyes,  
+To grow unto himself was his desire,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And so 'tis thine; but know it is as good  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To wither in my breast, as in his blood.'
 
+'Here was thy father's bed, here is my breast,  
+Thou art the next of blood, and 'tis thy right:  
+Lo! in this hollow cradle take thy rest,  
+My throbbing heart shall rock thee day and night:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;There shall not be one minute of an hour,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Wherein I will not kiss my sweet love's flower.'
 
-By this the boy that by her side lay kill'd, 
-
-Was melted like a vapour from her sight, 
-
-And in his blood, that on the ground lay spill'd, 
-
-A purple flower sprung up chequer'd with white, 
-Resembling well his pale cheeks and the blood, 
-Which in round drops upon their whiteness stood. 
-
-She bows her head the new-sprung flower to smell, 
-Comparing it to her Adonis' breath : 
-And says, within her bosom it shall dwell, 
-Since he himself is reft from her by death : 
-She crops the stalk, and in the breach appears 
-Green dropping sap, which she compares to tears. 
-
-Poor flower! (quoth she) this was thy father's guise, 
-(Sweet issue of a more sweet-smelling sire) 
-
-For every little grief to wet his eyes, 
-
-To grow unto himself was his desire, 
-
-And so 'tis thine; but know it is as. good 
-
-To wither in my breast, as in his blood. 
-
-'Here was thy father's bed, here is my breast, 
-Thou art the next of blood, and 'tis thy right : 
-Lo! in this hollow cradle take thy rest, 
-
-My throbbing heart shall rock thee day and night : 
-There shall not be one minute of an hour, 
-Wherein I will not kiss my sweet love's flower. 
-
-
-'Thus weary of the world, away she hies, 
-And yokes her silver doves, by whose swift aid, 
-Their mistress mounted, thro' the empty skies 
-In her light chariot quickly is convey'd ; 
-Holding their course to Paphos, where their queen 
-Means to immure herself, and not be seen.'—pp. 90—94. 
-
+'Thus weary of the world, away she hies,  
+And yokes her silver doves, by whose swift aid,  
+Their mistress mounted, thro' the empty skies  
+In her light chariot quickly is convey'd;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Holding their course to Paphos, where their queen  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Means to immure herself, and not be seen.' --- pp. 90—94.
 
 To return, however, from this digression. We now come to the 
 introduction of the worship of this goddess into Cyprus, the history 
