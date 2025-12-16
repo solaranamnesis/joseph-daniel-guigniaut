@@ -250,111 +250,33 @@ In her light chariot quickly is convey'd;
 
 To return, however, from this digression. We now come to the introduction of the worship of this goddess into Cyprus, the history of which is thus given by Tacitus. According to the most ancient tradition, a certain king called Aërias, was the founder of the temple of Venus at Paphos. Some, however, pretend, that Aërias was an appellation of the goddess herself. According to a more modern opinion, the temple was consecrated by Cinyras, on the very spot where Venus first landed when she sprang from the sea. It is added that the science of the Haruspices and all the secrets of their art, were brought hither from foreign countries, by Tamiras, the Cilician, and that it was decreed that the descendants of these two families should prescribe in concert over every thing that related to public worship. In a short time, however, in order that the royal family might in all respects be superior to the foreign race, the strangers renounced the science which they had introduced, and from that time forward, the priest consulted has always been a descendant of Cinyras. The male of all kinds of animals is offered up as a victim to the goddess; but in looking into the future, the entrails of goats are always preferred. It is prohibited to stain the altars with blood; prayers and a pure flame alone are offered upon them, and these altars, although in the open air, are never moistened by rain. The goddess is not represented under the human form; the image is a circular block of stone, which, rising in the form of a cone, diminishes gradually from the base to the summit. The reason of this form is unknown.
 
-In his learned and curious dissertation, or Excursus, as he 
-terms it, on this passage, M. Guigniaut confirms an opinion which 
-we had previously entertained, respecting this ancient statue. He 
-supposes it to be the symbol adored in Hindoostan, by the wor- 
-shippers of Siva; but, in this instance, joined with the corresponding 
-symbol, which, though admitted into the apparatus of several 
-ancient religions, has always been covered by a thicker veil. He 
-observes, that the Greeks, who were much addicted to borrowing 
-foreign mythi, or fables, and mixing them with their national 
-legends, had, in the worship of Venus, adhered more closely than 
-usual to their own traditions. Cinyras, the founder of the temple, 
+In his learned and curious dissertation, or _Excursus_, as he terms it, on this passage, Mr. Guigniaut confirms an opinion which we had previously entertained, respecting this ancient statue. He supposes it to be the symbol adored in Hindoostan, by the worshippers of Siva; but, in this instance, joined with the corresponding symbol, which, though admitted into the apparatus of several ancient religions, has always been covered by a thicker veil. He observes, that the Greeks, who were much addicted to borrowing foreign mythi, or fables, and mixing them with their national legends, had, in the worship of Venus, adhered more closely than usual to their own traditions. Cinyras, the founder of the temple, and a descendant in the sixth degree from Cephalus and Aurora, was the grandson of Cecrops, first king of Attica. From this tradition, it is inferred that Paphos, as well as several other cities of Cyprus, was founded by Athenian colonists, after the siege of Troy. A portion of the population of Cyprus, according to Herodotus, was of African origin, having come into the island from Ethiopia, or more probably from Egypt. Mr. Creuzer, indeed, discovers an Egyptian in Aërias, and observes, that the ancient name of this country, about which so much uncertainty, and so many fables prevail, was Aëria. Mr. Guigniaut, however, with whom, on this occasion, we are much more disposed to agree, thinks that the name of Aërias, or Aëria, attributed by many to the goddess herself, has a natural affinity with that of _Aous_,* first king of the country, who is, in fact, no other than Tithon, or Phaeton, and means, _child of Aurora_. Possibly, also, Cinyras and Adonis may be only one and the same person under different names; in which case, we should have here a striking example of a phenomenon by no means rare in the religions of antiquity, in which the God, the object of adoration, is also represented as the institutor of his own worship, as the first king and the first priest. In the first place, Adonis reigned in Cyprus, as well as Cinyras. The latter, on the other hand, was a native of Byblos, in Phœnicia, a city renowned for the worship of Adonis, or Thammuz, a deity purely Phœnician: he had erected a temple to Venus on mount Libanus, and, pursuing the genealogical thread with which we are now engaged, Adonis was his son, by a daughter of Pygmalion, king of Phœnicia. Now, the name of the latter was Gingras, the name also of a peculiar kind of flute used in Phœnicia to express mourning; and the name of Cinyras, which is not at all unlike that of Gingras, while it expressed tears and mourning, was also applied to an instrument of music. Let us add, that Adonis, the unfortunate lover of Venus, was known at Lacedemon under the name of Ciris, or Cyris, an appellation which might be derived from κυριος and would in that case be merely a translation of the Phœnician Adonai, or Lord. It may be added, that Cinyras and his descendants were said to be buried in the temple at Paphos, and that Venus herself was also interred in the same spot, beside her lover, evidently confounded with Adonis. Milton, who had looked with a curious eye into the fables of antiquity, represents Astarte as the moon, in the following beautiful passage --- 
 
-and a descendant in the sixth degree from Cephalus and Aurora, 
-was the grandson of Cecrops, first king of Attica. From this tra- 
-dition, it is inferred that Paphos, as well as several other cities of 
-Cyprus, was founded by Athenian colonists, after the siege of Troy. 
-A portion of the population of Cyprus, according to Herodotus, was 
-of African origin, having come into the island from Ethiopia, or 
-more probably from Egypt. M.Creuzer, indeed, discovers an 
-Egyptian in Aérias, and observes, that the ancient name of this 
-country, about which so much uncertainty, and so many fables 
-prevail, was Aéria. M. Guigniaut, however, with whom, on this 
-occasion, we are much more disposed to agree, thinks that the 
-name of Aérias, or Aeria, attributed by many to the goddess her- 
-self, has a natural affinity with that of Aous,* first king of the 
-country, who is, in fact, no other than Tithon, or Phaeton, and 
-means, child of Aurora. Possibly, also, Cinyras and Adonis ma 
-be only one and the same person under different names ; in whic 
-case, we should have here a striking example of a phenomenon b 
-no means rare in the religions of antiquity, in which the God, the 
-object of adoration, is also represented as the institutor of his own 
-worship, as the first king and the first priest. In the first place, 
-Adonis reigned in Cyprus, as well as Cinyras. The latter, on the 
-other hand, was a native of Byblos, in Pheenicia, a city renowned 
-for the worship of Adonis, or Thammuz, a deity purely Pheenician: 
-he had erected a temple to Venus on mount Libanus, and, pursuing 
-the genealogical thread with which we are now engaged, Adonis 
-was his son, by a daughter of Pygmalion, king of Pheenicia. Now, 
-the name of the latter was Gingras, the name also of a peculiar 
-kind of flute used in Phoenicia to express mourning ; and the name 
-of Cinyras, which is not at all unlike that of Gingras, while it ex- 
-pressed tears and mourning, was also applied to an instrument of 
-music. Let us add, that Adonis, the unfortunate lover of Venus, 
-was known at Lacedemon under the name of Ciris, or Cyris, an 
-appellation which might be derived from «vps and would in that 
-case be merely a translation of the Pheenician Adonai, or Lord. It 
-may be added, that Cinyras and his descendants were said to be 
-buried in the temple at Paphos, and that Venus herself was also 
-interred in the same spot, beside her lover, evidently confounded 
-with Adonis. Milton, who had looked with a curious eye into the 
-fables of antiquity, represents Astarte as the moon, in the following 
-beautiful passage— 
+" --- With those in troop  
+Came Ashtoreth, whom the Phœnicians called  
+Astarte, Queen of Heaven, with crescent horns:  
+To whose bright image nightly by the moon,  
+Sidonian virgins paid their vows and songs,  
+In Sion also not unsury, where stood  
+Her temple on the offensive mountain, built,  
+By that uxorious King, whose heart tho' large,  
+Beguiled by fair idolatresses, fell  
+To idols foul. Thammuz came next behind,  
+Whose annual wound in Lebanon allured  
+The Syrian damsels to lament his fate,  
+In amorous ditties all a summer's day.  
+While smooth Adonis from his native rock,  
+Ran purple to the sea, supposed with blood  
+Of Thammuz yearly wounded: the love-tale  
+Infected Sion's daughters with like heat,  
+Whose wanton passions in the sacred porch  
+Ezekiel saw, when by the vision led  
+His eye surveyed the dark idolatries  
+Of alienated Judah."
 
-With those in troop 
-Came Ashtoreth, whom the Pheenicians called 
-Astarte, Queen of Heaven, with crescent horns: 
-To whose bright image nightly by the moon, 
+*) Aous was also a river of Chaonia. Palmer à Grentemenil. Ant. Græc. Descrip. p. 144.
 
-** Aous was also a river of Chaonia. Palmer A Grentemenil. Ant. 
-Greece. Descrip. p. 144.' 
-
-Sidonian virgins paid t! eir vows and songs, 
-
-In Sion also not unsury, where stood 
-
-Her temple on the offensive mountain, built, 
-By that uxorious King, whose heart tho’ large, 
-Beguiled by fair idolatresses, fell 
-
-To idols foul. Thammuz came next behind, 
-Whose annual wound in Lebanon allured 
-
-The Syrian damsels to lament his fate, 
-
-In amorous ditties all a summer’s day. 
-
-While smooth Adonis from his native rock, 
-
-Ran purple to the sea, supposed with blood 
-Of Thammuz yearly wounded : the love-tale 
-Infected Sion’s daughters with like heat, 
-Whose wanton passions in the sacred porch 
-Ezekiel saw, when by the vision led 
-
-His eye surveyed the dark idolatries 
-
-Of alienated Judah.” 
-
-
-We here discover, says M. Guigniaut, through the mists of 
-Grecian fable, the real origin and character of the Paphian wor- 
-ship. It wasan Asiatic and Pheenician worship, in which sadness 
-was mingled with pleasure, as we may infer from the very names 
-of Cinyras and Adonis, which lead us to believe that at some very 
-early period, Cyprus was colonized by the Pheenicians. It was they 
-who built the ancient Golgi, a name which bears evident marks of 
-its Pheenician origin ; who instituted both here and at the ancient 
-Paphos, the worship of Venus Urania, long before the Arcadian 
-Agapenor, on his return from Troy, had built the new city, and 
-adorned it with superb temples. In proof of the justness of Milton’s 
-views on this subject, the most learned mythologists of our own 
-days, represent Venus as the great goddess of nature, generally 
-identified with the moon, but occasionally, in the opinion of 
-M. Guigniaut, with the planet Venus, the morning star, 
-Aurora. 
+We here discover, says Mr. Guigniaut, through the mists of Grecian fable, the real origin and character of the Paphian worship. It was an Asiatic and Phœnician worship, in which sadness was mingled with pleasure, as we may infer from the very names of Cinyras and Adonis, which lead us to believe that at some very early period, Cyprus was colonized by the Phœnicians. It was they who built the ancient Golgi, a name which bears evident marks of its Phœnician origin; who instituted both here and at the ancient Paphos, the worship of Venus Urania, long before the Arcadian Agapenor, on his return from Troy, had built the new city, and adorned it with superb temples. In proof of the justness of Milton's views on this subject, the most learned mythologists of our own days, represent Venus as the great goddess of nature, generally identified with the moon, but occasionally, in the opinion of Mr. Guigniaut, with the planet Venus, the morning star, Aurora.
 
 From Cyprus, or Cythera, the worship of Venus passed into the 
 Peloponnesus and the other parts of Greece, where it was soon con- 
@@ -373,43 +295,22 @@ them previous to all communication with the East. Before we
 pass, however, from Cyprus to the continent, we will present the 
 reader with ashort description of the temple of Venus, at Cyprus :— 
 
-
-
-
-
-
-
-
-Worship of Venus. 
-
-
 —‘* With speed the two iinmortals came 
-
 To the grand mansion of the Cyprian dame, 
 Which crippled Vulcan raised, when first he led 
 The Paphian goddess to his nuptial bed. 
-
 The gate they pass, and to the dome retire, 
 Where Venus oft regales the god of fire: 
-
 He to his forge had gone at early day, 
-
 A floating isle contained it on the bay, 
-
 Here wond’rous works by fire’s fierce power he wrought, 
 And on his anvil to perfection brought. 
-
 Fronting the door, all lovely and alone, 
-
 Sat Cythera on a polished throne. 
-
 Adown the shoulders of the heavenly fair 
-
 In easy ringlets flowed her yellow hair; 
-
 And with a golden comb, in matchless grace, 
 She taught each lock its most becoming place.” 
-
 
 Being thus introduced to the goddess and her dwelling hy one 
 poet, Apollonius Rhodius, we shall proceed to borrow from another 
@@ -419,16 +320,11 @@ mountain, inaccessible to men. The rigour of winter, the burning
 heats of summer, are never felt upon this mountain; the winds fear 
 to approach it ; and a perpetual spring prevails there. A spacious 
 plain occupies the summit, and is enclosed by a wall of gold, which 
-
-
 prohibits the entrance of mortals. Flowers of eternal beauty 
 sprin 2 Mer gent and their exquisite scents are carried hither 
 it 
-
-
 and thither by the rm yrs. Ina dark wood, which stands on one 
 = of the plain, birds of the most lovely notes sing perpetually. 
-
 ven the very trees are here capable of love, and entertain and are 
 the objects of tender sentiments. The palm tree bends oyer its be- 
 loved; poplar sighs for pone plane for plane; and a soft murmur 
@@ -449,15 +345,6 @@ and proud, self-confiding youth forbids age to enter the grove. The
 palace of the goddess reflects the rays of the sun in a thousand 
 ways; itis constructed of gold and jewels with the greatest art ; 
 its beams are of emerald, its pillars of jacinth, its walls of beryl, 
-
-rR 2 
-
-
-
-
-
-242 Worship of Venus. 
-
 
 its threshold of jasper, and its floors of agate. The a is 
 filled with all the perfumes of Arabia. The Graces stand at the 
@@ -510,13 +397,6 @@ Eryx is near the sea, between Drepanum and Panormus, in that
 part of Sicily which faces Italy. Upon the summit of this moun- 
 tain, which is exceedingly steep, on the the side of Drepanum, 
 and, next to Etna, the highest in the whole island, was a small 
-
-
-
-
-
-Worship of Venus. 243 
-
 
 plain, which, according to tradition, was artificially enlarged, by 
 edalus. Upon this plain stood the famous temple of Venus, 
