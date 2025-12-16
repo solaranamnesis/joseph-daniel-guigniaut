@@ -177,3 +177,175 @@ Their virtue lost, wherein they late excel'd,
 And every beauty rob'd of his effect.  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Wonder of time! (quoth she) this is my spight,  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That, you being dead, the day shou'd yet be light.'
+
+'Since thou art dead, lo! here I y 
+Sorrow on love hereafter shall attend ; 
+It shall be waited on with jealousy, 
+Find sweet beginning, but unsavoury end, 
+Ne'er settled equally to high or low; 
+That all love's pleasures shall not match his woe. 
+
+'It shall be fickle, false, and full of fraud, 
+And shall be blasted in a breathing while, 
+The bottom poison, and the top o'er-straw'd 
+With sweets, that shall the sharpest sight beguile. 
+The strongest body shall it make most weak, 
+Strike the wise dumb, and teach the fool to speak. 
+
+It shall be sparing, and too full of riot, 
+
+Teaching decrepit age to tread the measures ; 
+
+The staring ruffian shall it keep in quiet, 
+
+Pluck down the rich, inrich the poor with treasures ; 
+It shall be raging mad, and silly mild, 
+Make the young old, the old become a child. 
+
+‘It shall suspect where is no cause of fear; 
+It shall not fear, where it should most mistrust ; 
+It shall be merciful and too severe, 
+And most deceiving when it seems most just: 
+Perverse,jt shall be when it seems most toward, 
+Put fear to valour, courage to the coward. 
+
+It shall be cause of war and dire events, 
+And set dissention 'twixt the son and sire; 
+Subject and servile to all discontents, 
+As dry combustious matter is to fire. 
+Sith, in his prime, death doth my love destroy, 
+They that love best their love shall not enjoy. 
+
+
+By this the boy that by her side lay kill'd, 
+
+Was melted like a vapour from her sight, 
+
+And in his blood, that on the ground lay spill'd, 
+
+A purple flower sprung up chequer'd with white, 
+Resembling well his pale cheeks and the blood, 
+Which in round drops upon their whiteness stood. 
+
+She bows her head the new-sprung flower to smell, 
+Comparing it to her Adonis' breath : 
+And says, within her bosom it shall dwell, 
+Since he himself is reft from her by death : 
+She crops the stalk, and in the breach appears 
+Green dropping sap, which she compares to tears. 
+
+Poor flower! (quoth she) this was thy father's guise, 
+(Sweet issue of a more sweet-smelling sire) 
+
+For every little grief to wet his eyes, 
+
+To grow unto himself was his desire, 
+
+And so 'tis thine; but know it is as. good 
+
+To wither in my breast, as in his blood. 
+
+'Here was thy father's bed, here is my breast, 
+Thou art the next of blood, and 'tis thy right : 
+Lo! in this hollow cradle take thy rest, 
+
+My throbbing heart shall rock thee day and night : 
+There shall not be one minute of an hour, 
+Wherein I will not kiss my sweet love's flower. 
+
+
+'Thus weary of the world, away she hies, 
+And yokes her silver doves, by whose swift aid, 
+Their mistress mounted, thro' the empty skies 
+In her light chariot quickly is convey'd ; 
+Holding their course to Paphos, where their queen 
+Means to immure herself, and not be seen.'—pp. 90—94. 
+
+
+To return, however, from this digression. We now come to the 
+introduction of the worship of this goddess into Cyprus, the history 
+of which is thus given by Tacitus. According to the most ancient 
+tradition, a certain king called Aerias, was the founder of the 
+temple of Venus at Paphos. Some, however, pretend, that Aerias 
+was an appellation of the goddess herself. According to a more 
+modern opinion, the temple was consecrated by Cinyras, on the 
+very spot where Venus first landed when she sprang from the sea. 
+It is added that the science of the Haruspices and all the secrets 
+of their art, were brought hither from foreign countries, by Tamiras, 
+the Cilician, and that it was decreed that the descendants of these 
+two families should prescribe in concert over every thing that 
+related to public worship. Ina short time, however, in order that 
+the royal family might in all respects be superior to the foreign race, 
+the strangers renounced the science which they had introduced, 
+and from that time forward, the priest consulted has always been a 
+descendant of Cinyras. The male of all kinds of animals is offered 
+up as a victim to the goddess ; but in looking into the future, the 
+entrails of goats are always preferred. It is prohibited to stain 
+the altars with blood ; prayers and a pure flame alone are offered 
+upon them, and these altars, although in the open air, are never 
+moistened by rain. The goddess is not represented under the 
+human form ; the image is a circular block of stone, which, rising 
+in the form of a cone, diminishes gradually from the base to the 
+summit. The reason of this form is unknown. 
+
+In his learned and curious dissertation, or Excursus, as he 
+terms it, on this passage, M. Guigniaut confirms an opinion which 
+we had previously entertained, respecting this ancient statue. He 
+supposes it to be the symbol adored in Hindoostan, by the wor- 
+shippers of Siva; but, in this instance, joined with the corresponding 
+symbol, which, though admitted into the apparatus of several 
+ancient religions, has always been covered by a thicker veil. He 
+observes, that the Greeks, who were much addicted to borrowing 
+foreign mythi, or fables, and mixing them with their national 
+legends, had, in the worship of Venus, adhered more closely than 
+usual to their own traditions. Cinyras, the founder of the temple, 
+
+and a descendant in the sixth degree from Cephalus and Aurora, 
+was the grandson of Cecrops, first king of Attica. From this tra- 
+dition, it is inferred that Paphos, as well as several other cities of 
+Cyprus, was founded by Athenian colonists, after the siege of Troy. 
+A portion of the population of Cyprus, according to Herodotus, was 
+of African origin, having come into the island from Ethiopia, or 
+more probably from Egypt. M.Creuzer, indeed, discovers an 
+Egyptian in Aérias, and observes, that the ancient name of this 
+country, about which so much uncertainty, and so many fables 
+prevail, was Aéria. M. Guigniaut, however, with whom, on this 
+occasion, we are much more disposed to agree, thinks that the 
+name of Aérias, or Aeria, attributed by many to the goddess her- 
+self, has a natural affinity with that of Aous,* first king of the 
+country, who is, in fact, no other than Tithon, or Phaeton, and 
+means, child of Aurora. Possibly, also, Cinyras and Adonis ma 
+be only one and the same person under different names ; in whic 
+case, we should have here a striking example of a phenomenon b 
+no means rare in the religions of antiquity, in which the God, the 
+object of adoration, is also represented as the institutor of his own 
+worship, as the first king and the first priest. In the first place, 
+Adonis reigned in Cyprus, as well as Cinyras. The latter, on the 
+other hand, was a native of Byblos, in Pheenicia, a city renowned 
+for the worship of Adonis, or Thammuz, a deity purely Pheenician: 
+he had erected a temple to Venus on mount Libanus, and, pursuing 
+the genealogical thread with which we are now engaged, Adonis 
+was his son, by a daughter of Pygmalion, king of Pheenicia. Now, 
+the name of the latter was Gingras, the name also of a peculiar 
+kind of flute used in Phoenicia to express mourning ; and the name 
+of Cinyras, which is not at all unlike that of Gingras, while it ex- 
+pressed tears and mourning, was also applied to an instrument of 
+music. Let us add, that Adonis, the unfortunate lover of Venus, 
+was known at Lacedemon under the name of Ciris, or Cyris, an 
+appellation which might be derived from «vps and would in that 
+case be merely a translation of the Pheenician Adonai, or Lord. It 
+may be added, that Cinyras and his descendants were said to be 
+buried in the temple at Paphos, and that Venus herself was also 
+interred in the same spot, beside her lover, evidently confounded 
+with Adonis. Milton, who had looked with a curious eye into the 
+fables of antiquity, represents Astarte as the moon, in the following 
+beautiful passage— 
+
+With those in troop 
+Came Ashtoreth, whom the Pheenicians called 
+Astarte, Queen of Heaven, with crescent horns: 
+To whose bright image nightly by the moon, 
+
+** Aous was also a river of Chaonia. Palmer A Grentemenil. Ant. 
+Greece. Descrip. p. 144.' 
+
