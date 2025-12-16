@@ -248,31 +248,7 @@ In her light chariot quickly is convey'd;
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Holding their course to Paphos, where their queen  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Means to immure herself, and not be seen.' --- pp. 90—94.
 
-To return, however, from this digression. We now come to the 
-introduction of the worship of this goddess into Cyprus, the history 
-of which is thus given by Tacitus. According to the most ancient 
-tradition, a certain king called Aerias, was the founder of the 
-temple of Venus at Paphos. Some, however, pretend, that Aerias 
-was an appellation of the goddess herself. According to a more 
-modern opinion, the temple was consecrated by Cinyras, on the 
-very spot where Venus first landed when she sprang from the sea. 
-It is added that the science of the Haruspices and all the secrets 
-of their art, were brought hither from foreign countries, by Tamiras, 
-the Cilician, and that it was decreed that the descendants of these 
-two families should prescribe in concert over every thing that 
-related to public worship. Ina short time, however, in order that 
-the royal family might in all respects be superior to the foreign race, 
-the strangers renounced the science which they had introduced, 
-and from that time forward, the priest consulted has always been a 
-descendant of Cinyras. The male of all kinds of animals is offered 
-up as a victim to the goddess ; but in looking into the future, the 
-entrails of goats are always preferred. It is prohibited to stain 
-the altars with blood ; prayers and a pure flame alone are offered 
-upon them, and these altars, although in the open air, are never 
-moistened by rain. The goddess is not represented under the 
-human form ; the image is a circular block of stone, which, rising 
-in the form of a cone, diminishes gradually from the base to the 
-summit. The reason of this form is unknown. 
+To return, however, from this digression. We now come to the introduction of the worship of this goddess into Cyprus, the history of which is thus given by Tacitus. According to the most ancient tradition, a certain king called Aërias, was the founder of the temple of Venus at Paphos. Some, however, pretend, that Aërias was an appellation of the goddess herself. According to a more modern opinion, the temple was consecrated by Cinyras, on the very spot where Venus first landed when she sprang from the sea. It is added that the science of the Haruspices and all the secrets of their art, were brought hither from foreign countries, by Tamiras, the Cilician, and that it was decreed that the descendants of these two families should prescribe in concert over every thing that related to public worship. In a short time, however, in order that the royal family might in all respects be superior to the foreign race, the strangers renounced the science which they had introduced, and from that time forward, the priest consulted has always been a descendant of Cinyras. The male of all kinds of animals is offered up as a victim to the goddess; but in looking into the future, the entrails of goats are always preferred. It is prohibited to stain the altars with blood; prayers and a pure flame alone are offered upon them, and these altars, although in the open air, are never moistened by rain. The goddess is not represented under the human form; the image is a circular block of stone, which, rising in the form of a cone, diminishes gradually from the base to the summit. The reason of this form is unknown.
 
 In his learned and curious dissertation, or Excursus, as he 
 terms it, on this passage, M. Guigniaut confirms an opinion which 
