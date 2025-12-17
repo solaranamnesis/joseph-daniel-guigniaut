@@ -418,34 +418,25 @@ Through all the circled land, and circling sea;
 With fertil seed she fill'd the pervious earth,  
 And ever fix'd the mystic ways of birth.' --- pp. 30—36.
 
-The light in which the goddess appeared to those among the 
-Pagans, who were disposed to give a physical interpretation of 
-their fables, may be conjectured from the beautiful invocation of 
-Lucretius, thus translated by Creech : 
+The light in which the goddess appeared to those among the Pagans, who were disposed to give a physical interpretation of their fables, may be conjectured from the beautiful invocation of Lucretius, thus translated by Creech:
 
-' Kind Venus, glory of the best abodes, 
-Parent of Rome, and joy of men and gods ; 
-Delight of all, comfort of sea and earth ; 
-To whose kind powers all creatures owe their birth. 
-At thy approach, great goddess, straight remove 
-Whate'er are rough, and enemies to love; 
-The clouds disperse, the winds do swiftly mast, 
-And reverently in murmurs breathe their last ; 
-The earth with various art (for thy warm powers 
-That dull mass feels) puts forth their gaudy flowers, 
-For thee doth subtle luxury prepare, 
-The choicest stores of earth, of sea, of air ; 
-To welcome thee she comes profusely drest, 
-With all the spices of the wanton East; 
-To pleasure thee e'en lazy luxury toils, 
-The roughest sea puts on smooth looks and smiles : 
-The well pleased heaven assumes a brighter ray 
-At thy approach, and makes a double day.' 
+'Kind Venus, glory of the best abodes,  
+Parent of Rome, and joy of men and gods;  
+Delight of all, comfort of sea and earth;  
+To whose kind powers all creatures owe their birth.  
+At thy approach, great goddess, straight remove  
+Whate'er are rough, and enemies to love;  
+The clouds disperse, the winds do swiftly mast,  
+And reverently in murmurs breathe their last;  
+The earth with various art (for thy warm powers  
+That dull mass feels) puts forth their gaudy flowers,  
+For thee doth subtle luxury prepare,  
+The choicest stores of earth, of sea, of air;  
+To welcome thee she comes profusely drest,  
+With all the spices of the wanton East;  
+To pleasure thee e'en lazy luxury toils,  
+The roughest sea puts on smooth looks and smiles:  
+The well pleased heaven assumes a brighter ray  
+At thy approach, and makes a double day.'
 
-To trace the worship of Venus to its source in Hindoostan, 
-where it is still intimately connected with Sivaism, it would be 
-necessary to enter into details by no means suited to the pages of 
-a popular Review. The Orientals are incapable of shrouding 
-their symbols in those veils of beauty, which the Grecians threw 
-over all their worship, and leave too much open to the eye of 
-sense. 
+To trace the worship of Venus to its source in Hindoostan, where it is still intimately connected with Sivaism, it would be necessary to enter into details by no means suited to the pages of a popular Review. The Orientals are incapable of shrouding their symbols in those veils of beauty, which the Grecians threw over all their worship, and leave too much open to the eye of sense.
