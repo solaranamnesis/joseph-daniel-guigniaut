@@ -349,109 +349,74 @@ From gemms, from flames, from orient rays of light
 The richest lustre makes her purple bright;  
 And she to-morrow weds; the sporting gale  
 Unties her zone, she bursts the verdant veil;  
-
-Thro' all her sweets the rifling lover flies, 
-And as he breathes, her glowing fires arise. 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before; 
-"Let those who always lov'd, now love the more." 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Now fair Dione to the myrtle grove 
-Sends the gay nymphs, and sends her tender Love. 
-And shall they venture? is it safe to go? 
-While nymphs have hearts, and Cupid wears a bow? 
-Yes, safely venture, 'tis his mother's will; 
-He walks unarm'd, and undesigning ill, 
-His torch extinct, his quiver useless hung, 
-His arrows idle, and his bow unstrung. 
-And yet, ye Nymphs, beware, his eves have charms, 
-And Love that's naked, still is Love in arms. 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;'"Let those love now, who never lov'd before; 
+Thro' all her sweets the rifling lover flies,  
+And as he breathes, her glowing fires arise.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before;  
 "Let those who always lov'd, now love the more."  
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From Venus' bow'r to Delia's lodge repairs 
-A virgin train compleat with modest airs: 
-'Chaste Delia! grant our suit! or shun the wood, 
-'Nor stain this sacred lawn with savage blood. 
-'Venus, O Delia! if she cou'd persuade, 
-'Wou'd ask thy presence, might she ask a maid.' 
-Here chearful quires for three auspicious nights 
-With songs prolong the pleasurable rites: 
-Here crouds in measures lightly-decent rove; 
-Or seek by pairs the covert of the grove, 
-Where meeting greens for arbours arch above, 
-And mingling flowrets strow the scenes of love. 
-
-Here dancing Ceres shakes her golden sheaves : 
-
-Here Bacchus revels, deckt with viny leaves : 
-
-Here wit's enchanting God in laurel crown'd 
-
-Wakes all the ravish'd Hours with silver sound. 
-
-Ye tields, ye forests, own Dione's reign, 
-
-And Delia, huntress Delia, shun the plain 
-
-'* Let those love now, who never lov'd before ; 
-'' Let those who always lov'd, now love the more.” 
-Gay with the bloom of all her opening year, 
-
-The Queen at Hybla bids her throne appear ; 
-
-And there presides; and there the fav'rite band 
-
-(Her smiling Graces) share the great command, 
-
-Now beauteous Hybla! dress thy flow'ry beds 
-
-With all the pride the lavish season sheds ; 
-
-Now all thy colours, all thy fragrance yield, 
-
-And rival Enna's aromatic field. 
-
-To till the presence of the gentle court 
-
-From ev'ry quarter rural Nymphs resort, 
-
-From woods, from mountains, from their humble vales, 
-
-From waters curling with the wanton gales. 
-
-Pleas'd with the joyful train, the laughing Queen 
-In circles seats them round the bank of green; 
-
-And ' lovely girls, (she whispers) guard your hearts; 
-
-' My boy, tho' stript of arms, abounds in arts. 
-'* Let those love now, who never lov'd before ; 
-Let those who always lov'd now love the more.” 
-Let tender grass in shaded alleys spread, 
-
-Let early flow'rs erect their painted head. 
-
-To-morrow's glory be to-morrow seen, 
-
-That day, old Ether wedded Earth in green. 
-
-The Vernal Father bid the Spring appear, 
-
-In clouds he coupled to produce the year, 
-
-The sap descending o'er her bosom ran, 
-
-And all the various sorts of soul began. 
-
-By wheels unknown to sight, by secret veins 
-
-Distilling life, the fruitful Goddess reigns, 
-
-Through all the lovely realms of native day, 
-
-Through all the circled land, and circling sea ; 
-
-With fertil seed she fill'd the pervious earth, 
-
-And ever fix'd the mystic ways of birth.'—pp. 30—36, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Now fair Dione to the myrtle grove  
+Sends the gay nymphs, and sends her tender Love.  
+And shall they venture? is it safe to go?  
+While nymphs have hearts, and Cupid wears a bow?  
+Yes, safely venture, 'tis his mother's will;  
+He walks unarm'd, and undesigning ill,  
+His torch extinct, his quiver useless hung,  
+His arrows idle, and his bow unstrung.  
+And yet, ye Nymphs, beware, his eves have charms,  
+And Love that's naked, still is Love in arms.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;'"Let those love now, who never lov'd before;  
+"Let those who always lov'd, now love the more."  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From Venus' bow'r to Delia's lodge repairs  
+A virgin train compleat with modest airs:  
+'Chaste Delia! grant our suit! or shun the wood,  
+'Nor stain this sacred lawn with savage blood.  
+'Venus, O Delia! if she cou'd persuade,   
+'Wou'd ask thy presence, might she ask a maid.'  
+Here chearful quires for three auspicious nights  
+With songs prolong the pleasurable rites:  
+Here crouds in measures lightly-decent rove;  
+Or seek by pairs the covert of the grove,  
+Where meeting greens for arbours arch above,  
+And mingling flowrets strow the scenes of love.  
+Here dancing Ceres shakes her golden sheaves:  
+Here Bacchus revels, deckt with viny leaves:  
+Here wit's enchanting God in laurel crown'd  
+Wakes all the ravish'd Hours with silver sound.  
+Ye fields, ye forests, own Dione's reign,  
+And Delia, huntress Delia, shun the plain  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before;  
+"Let those who always lov'd, now love the more."  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Gay with the bloom of all her opening year,  
+The Queen at Hybla bids her throne appear;  
+And there presides; and there the fav'rite band  
+(Her smiling Graces) share the great command,  
+Now beauteous Hybla! dress thy flow'ry beds  
+With all the pride the lavish season sheds;  
+Now all thy colours, all thy fragrance yield,  
+And rival Enna's aromatic field.  
+To till the presence of the gentle court  
+From ev'ry quarter rural Nymphs resort,  
+From woods, from mountains, from their humble vales,  
+From waters curling with the wanton gales.  
+Pleas'd with the joyful train, the laughing Queen  
+In circles seats them round the bank of green;  
+And 'lovely girls, (she whispers) guard your hearts;  
+'My boy, tho' stript of arms, abounds in arts.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before;  
+Let those who always lov'd now love the more."  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Let tender grass in shaded alleys spread,  
+Let early flow'rs erect their painted head.  
+To-morrow's glory be to-morrow seen,  
+That day, old Ether wedded Earth in green.  
+The Vernal Father bid the Spring appear,  
+In clouds he coupled to produce the year,  
+The sap descending o'er her bosom ran,  
+And all the various sorts of soul began.  
+By wheels unknown to sight, by secret veins  
+Distilling life, the fruitful Goddess reigns,  
+Through all the lovely realms of native day,  
+Through all the circled land, and circling sea;  
+With fertil seed she fill'd the pervious earth,  
+And ever fix'd the mystic ways of birth.' --- pp. 30—36.
 
 The light in which the goddess appeared to those among the 
 Pagans, who were disposed to give a physical interpretation of 
