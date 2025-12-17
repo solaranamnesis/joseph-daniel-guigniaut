@@ -305,13 +305,190 @@ Venus had several temples at Athens. In the quarter of the city called "the gard
 
 The epithets of this goddess were numerous and significant; but we shall abstain from repeating them. From her temple, however, on mount Eryx in Sicily, she obtained the epithet _Erycina_, which occurs constantly in the works of the ancient poets. Mount Eryx is near the sea, between Drepanum and Panormus, in that part of Sicily which faces Italy. Upon the summit of this mountain, which is exceedingly steep, on the the side of Drepanum, and, next to Etna, the highest in the whole island, was a small plain, which, according to tradition, was artificially enlarged, by Dædalus. Upon this plain stood the famous temple of Venus, overlooking the city of Drepanum, which was built on the slope of the mountain, where Trapani del Monte now stands. This temple was scarcely less rich than that of Paphos; and among its curiosities, which consisted of antique phials, crateras, censers, etc., was a honey-comb in gold, said to be the work of Dædalus. Diodorus of Sicily, who enlarges with complacency upon this great ornament of his native country, remarks, that no person could fail to admire the glory of this temple. Other fanes, says he, have acquired celebrity, but the revolutions of time have humbled or destroyed them. This temple alone, founded in the remotest antiquity, has gone on increasing in consideration to the present day. To say nothing of the devotion of Eryx, (a king who, according to some tradition, was founder of the temple), Æneas, landing in Sicily, on his way to Italy, adorned this temple with a number of offerings. The Sicanians continued to pay divine honours to the goddess during many generations, and perpetually adorned her temple with magnificent presents. When the Carthaginians made themselves masters of the island, they treated the goddess with particular marks of respect; and, to conclude, the Romans, having added Sicily to their empire, surpassed all their predecessors, in their veneration of the deity of this temple. This, however, was to be expected; for since they pretended to derive their origin from Venus, and had filled their city with temples, erected to her, to whom they thought their success in wars and peace was to be attributed, it was natural they should honour her temples, wherever they might be found. The consuls, the prætors, in one word, all the magistrates who come into this island, offer magnificent sacrifices, and pay extraordinary honours to the goddess; and as soon as they arrive at mount Eryx, lay aside all the insignia of power, in order to amuse themselves gaily and at their ease, with their mistresses, that they may thus render the goddess propitious. The Roman senate, with singular piety, have issued a decree, authorizing seventeen of the most faithful cities in Sicily, to wear gold in honour of the goddess, and to guard her temple with two hundred soldiers.
 
-Both the inhabitants and strangers daily offered sacrifices to 
-Venus, on the great altar of the temple, which was constructed in 
-the open air. ‘These sacrifices generally occupied the worshippers 
-from morning until night, and must have produced large heaps of 
-cinders, charcoal, &c., but Elian, with true Pagan credulity, 
-informs us that nothing of all these was visible next morning, 
-but that a heavy dew was upon the ground, and fresh grass which 
-had sprang up during the night. To render matters still more 
-astonishing, he adds that no force was necessary to bring the 
-victims to the altar, but that the animals, pleased to be sacrificed 
+Both the inhabitants and strangers daily offered sacrifices to Venus, on the great altar of the temple, which was constructed in the open air. These sacrifices generally occupied the worshippers from morning until night, and must have produced large heaps of cinders, charcoal, etc., but Elian, with true Pagan credulity, informs us that nothing of all these was visible next morning, but that a heavy dew was upon the ground, and fresh grass which had sprang up during the night. To render matters still more astonishing, he adds that no force was necessary to bring the victims to the altar, but that the animals, pleased to be sacrificed to so beautiful a goddess, came of their own accord to the hand of the priest or sacrificer.
+
+The principal festival of this ancient divinity occurred in the spring, at which season she is thought to exercise the most powerful sway over both men and animals. The most beautiful and complete description of the mode in which the Eve of Venus was celebrated, is contained in the poem entitled "Pervigilium Veneris," attributed to Catullus. We give a portion of this poem, as translated by Archdeacon Parnell.
+
+'She comes; to-morrow Beauty's Empress roves 
+Thro' walks that winding run within the groves ; 
+She twines the shooting myrtle into bow'rs, 
+And ties their meeting tops with wreaths of flow'rs, 
+Then rais'd sublimely on her easy throne 
+From Nature's pow'rful dictates draws her own. 
+'¢ Let those love now, who never lov'd before ; ' 
+"' Let those who always lov'd, now love the more.” 
+"Twas on that day which saw the teeming flood 
+Swell round, impregnate with celestial blood ; 
+Wand ring in circles stood the sinny crew, 
+The midst was left a void expanse of blue, 
+There parent Ocean work'd with heaving throes, 
+And dropping wet the fair Dione rose. 
+'¢ Let those love now, who never lov'd before ; 
+"' Let those who always lov'd, now love the more.” 
+She paints the purple year with vary'd show, 
+Tips the green gem, and makes the blossom glow. 
+She makes the turgid buds receive the breeze, 
+Expand to leaves, and shade the naked trees. ' @ 
+When gath'ring damps the misty nights diffuse, 
+She sprinkles all the morn with balmy dews ; 
+Bright trembling pearls depend at every spray, 
+And kept from falling, seem to fall away. 
+A glossy freshness hence the Rose receives, 
+And blushes sweet through all her silken leaves ; 
+(The drops descending through the silent night, 
+While stars serenely roll their golden light,) 
+Close 'till the morn, her humid veil she holds; 
+Then deckt with virgin pomp the flow'r unfolds. 
+Soon will the morning blush: ye maids! prepare, 
+In rosy garlands bind your flowing hair ; 
+'Tis Venus' plant: the blood fair Venus shed, 
+O'er the gay beauty pour'd immortal red ; 
+From Love's soft kiss a sweet Ambrosial smell 
+Was taught for ever on the leaves to dwell; 
+From gemms, from flames, from orient rays of light 
+The richest lustre makes her purple bright ; 
+And she to-morrow weds ; the sporting gale 
+Unties her zone, she bursts the verdant veil; 
+
+Thro' all her sweets the rifling lover flies, 
+And as he breathes, her glowing fires arise. 
+'*¢ Let those love now, who never lov'd before ; 
+'« Let those who always lov'd, now love the more.” 
+Now fair Dione to the myrtle grove 
+Sends the gay nymphs, and sends her tender Love. 
+And shall they venture? is it safe to go ? 
+While nymphs have hearts, and Cupid wears a bow ? 
+Yes, safely venture, tis his mother's will; 
+He walks unarm'd, and undesigning ill, 
+His torch extinct, his quiver useless hung, 
+His arrows idle, and his bow unstrung. 
+And yet, ye Nymphs, beware, his eves have charms, 
+And Love that's naked, still is Love in arms. 
+' " Let those love now, who never lov'd before ; 
+'"« Let those who always lov'd, now love the more.” 
+From Venus' bow'r to Delia's lodge repairs 
+A virgin train compleat with modest airs: 
+
+' Chaste Delia! grant our suit! or shun the wood, 
+
+* Nor stain this sacred lawn with savage blood. 
+
+' Venus, O Delia! if she cou'd persuade, 
+
+* Wou'd ask thy presence, might she ask a maid.' 
+Here chearful quires for three auspicious nights 
+With songs prolong the pleasurable rites : 
+
+Here crouds in measures lightly-decent rove ; 
+
+Or seek by pairs the covert of the grove, 
+
+Where meeting greens for arbours arch above, 
+
+And mingling flowrets strow the scenes of love. 
+
+Here dancing Ceres shakes her golden sheaves : 
+
+Here Bacchus revels, deckt with viny leaves : 
+
+Here wit's enchanting God in laurel crown'd 
+
+Wakes all the ravish'd Hours with silver sound. 
+
+Ye tields, ye forests, own Dione's reign, 
+
+And Delia, huntress Delia, shun the plain 
+
+'* Let those love now, who never lov'd before ; 
+'' Let those who always lov'd, now love the more.” 
+Gay with the bloom of all her opening year, 
+
+The Queen at Hybla bids her throne appear ; 
+
+And there presides; and there the fav'rite band 
+
+(Her smiling Graces) share the great command, 
+
+Now beauteous Hybla! dress thy flow'ry beds 
+
+With all the pride the lavish season sheds ; 
+
+Now all thy colours, all thy fragrance yield, 
+
+And rival Enna's aromatic field. 
+
+To till the presence of the gentle court 
+
+From ev'ry quarter rural Nymphs resort, 
+
+From woods, from mountains, from their humble vales, 
+
+From waters curling with the wanton gales. 
+
+Pleas'd with the joyful train, the laughing Queen 
+In circles seats them round the bank of green; 
+
+And ' lovely girls, (she whispers) guard your hearts; 
+
+' My boy, tho' stript of arms, abounds in arts. 
+'* Let those love now, who never lov'd before ; 
+Let those who always lov'd now love the more.” 
+Let tender grass in shaded alleys spread, 
+
+Let early flow'rs erect their painted head. 
+
+To-morrow's glory be to-morrow seen, 
+
+That day, old Ether wedded Earth in green. 
+
+The Vernal Father bid the Spring appear, 
+
+In clouds he coupled to produce the year, 
+
+The sap descending o'er her bosom ran, 
+
+And all the various sorts of soul began. 
+
+By wheels unknown to sight, by secret veins 
+
+Distilling life, the fruitful Goddess reigns, 
+
+Through all the lovely realms of native day, 
+
+Through all the circled land, and circling sea ; 
+
+With fertil seed she fill'd the pervious earth, 
+
+And ever fix'd the mystic ways of birth.'—pp. 30—36, 
+
+The light in which the goddess appeared to those among the 
+Pagans, who were disposed to give a physical interpretation of 
+their fables, may be conjectured from the beautiful invocation of 
+Lucretius, thus translated by Creech : 
+
+' Kind Venus, glory of the best abodes, 
+Parent of Rome, and joy of men and gods ; 
+Delight of all, comfort of sea and earth ; 
+To whose kind powers all creatures owe their birth. 
+At thy approach, great goddess, straight remove 
+Whate'er are rough, and enemies to love; 
+The clouds disperse, the winds do swiftly mast, 
+And reverently in murmurs breathe their last ; 
+The earth with various art (for thy warm powers 
+That dull mass feels) puts forth their gaudy flowers, 
+For thee doth subtle luxury prepare, 
+The choicest stores of earth, of sea, of air ; 
+To welcome thee she comes profusely drest, 
+With all the spices of the wanton East; 
+To pleasure thee e'en lazy luxury toils, 
+The roughest sea puts on smooth looks and smiles : 
+The well pleased heaven assumes a brighter ray 
+At thy approach, and makes a double day.' 
+
+To trace the worship of Venus to its source in Hindoostan, 
+where it is still intimately connected with Sivaism, it would be 
+necessary to enter into details by no means suited to the pages of 
+a popular Review. The Orientals are incapable of shrouding 
+their symbols in those veils of beauty, which the Grecians threw 
+over all their worship, and leave too much open to the eye of 
+sense. 
