@@ -303,52 +303,7 @@ Entering the Peloponnesus we find at Lacedemon, a round temple dedicated to Olym
 
 Venus had several temples at Athens. In the quarter of the city called "the gardens," there was a temple, near which the goddess was represented by a quadrangular stone, with an inscription engraven upon it, in which Venus was said to be more ancient than the Fates. Above the Ceramicus was another temple to Venus, containing a statue from the hand of Phidias. One of the temples of this goddess was dedicated to her under the name of Venus Psithyros, or the whisperer, because the women who addressed their vows to her, whispered in the ear of the statue. Upon this practice Seneca remarks, --- "Turpissima vota diis insusurrunt, si quis ad moverit auem, conticescent, et quod scire hominem nolunt, des narrant." One of the three parts of the Piræeus was called Aphrodisium, and probably derived its name from the temple erected there by Conon, in memory of the victory obtained over the Lacedemonians, near Cnidos in Caria.
 
-The epithets of this goddess were numerous and significant ; but 
-we shall abstain from repeating them. From her temple, however, 
-on mount Eryx in Sicily, she obtained the epithet Erycina, which 
-occurs constantly in the works of the ancient poets. Mount 
-Eryx is near the sea, between Drepanum and Panormus, in that 
-part of Sicily which faces Italy. Upon the summit of this moun- 
-tain, which is exceedingly steep, on the the side of Drepanum, 
-and, next to Etna, the highest in the whole island, was a small 
-
-plain, which, according to tradition, was artificially enlarged, by 
-edalus. Upon this plain stood the famous temple of Venus, 
-overlooking the city of Drepanum, which was built on the slope 
-of the mountain, where Trapani del Monte now stands. This 
-temple was scarcely less rich than that of Paphos; and among 
-its curiosities, which consisted of antique phials, crateras, censers, 
-&c., was a honey-comb in gold, said to be the work of Dedalus. 
-Diodorus of Sicily, who enlarges with complacency upon this 
-great ornament of his native country, remarks, that no person 
-could fail to admire the glory of this temple. Other fanes, says 
-he, have acquired celebrity, but the revolutions of time have 
-humbled or destroyed them. This temple alone, founded in the 
-remotest antiquity, has gone on increasing in consideration 
-to the present day. To say nothing of the devotion of Eryx, 
-(a king who, according to some tradition, was founder of the 
-temple), AZneas, landing in Sicily, on his way to Italy, adorned 
-this temple with a number of offerings. The Sicanians continued 
-to pay divine honours to the goddess during many generations, and 
-perpetually adorned her temple with magnificent presents. When 
-the Carthaginians made themselves masters of the island, they 
-treated the goddess with particular marks of respect; and, to 
-conclude, the Romans, having added Sicily to their empire, sur- 
-passed all their predecessors, in their veneration of the deity of 
-this temple. This, however, was to be expected; for since they 
-pretended to derive their origin from Venus, and had filled their 
-city with temples, erected to her, to whom they thought their 
-success in wars and peace was to be attributed, it was natural 
-they should honour her temples, wherever they might be found. 
-The consuls, the pretors, in one word, all the magistrates who 
-come into this island, offer magnificent sacrifices, and pay extra- 
-ordinary honours to the goddess; and as soon as they arrive at 
-mount Eryx, lay aside all the insignia of power, in order to amuse 
-themselves gaily and at their ease, with their mistresses, that they 
-may thus render the goddess propitious. The Roman senate, 
-with singular piety, have issued a decree, authorizing seventeen of 
-the most faithful cities in Sicily, to wear gold in honour of tie 
-goddess, and to guard her temple with two hundred soldiers. 
+The epithets of this goddess were numerous and significant; but we shall abstain from repeating them. From her temple, however, on mount Eryx in Sicily, she obtained the epithet _Erycina_, which occurs constantly in the works of the ancient poets. Mount Eryx is near the sea, between Drepanum and Panormus, in that part of Sicily which faces Italy. Upon the summit of this mountain, which is exceedingly steep, on the the side of Drepanum, and, next to Etna, the highest in the whole island, was a small plain, which, according to tradition, was artificially enlarged, by Dædalus. Upon this plain stood the famous temple of Venus, overlooking the city of Drepanum, which was built on the slope of the mountain, where Trapani del Monte now stands. This temple was scarcely less rich than that of Paphos; and among its curiosities, which consisted of antique phials, crateras, censers, etc., was a honey-comb in gold, said to be the work of Dædalus. Diodorus of Sicily, who enlarges with complacency upon this great ornament of his native country, remarks, that no person could fail to admire the glory of this temple. Other fanes, says he, have acquired celebrity, but the revolutions of time have humbled or destroyed them. This temple alone, founded in the remotest antiquity, has gone on increasing in consideration to the present day. To say nothing of the devotion of Eryx, (a king who, according to some tradition, was founder of the temple), Æneas, landing in Sicily, on his way to Italy, adorned this temple with a number of offerings. The Sicanians continued to pay divine honours to the goddess during many generations, and perpetually adorned her temple with magnificent presents. When the Carthaginians made themselves masters of the island, they treated the goddess with particular marks of respect; and, to conclude, the Romans, having added Sicily to their empire, surpassed all their predecessors, in their veneration of the deity of this temple. This, however, was to be expected; for since they pretended to derive their origin from Venus, and had filled their city with temples, erected to her, to whom they thought their success in wars and peace was to be attributed, it was natural they should honour her temples, wherever they might be found. The consuls, the prætors, in one word, all the magistrates who come into this island, offer magnificent sacrifices, and pay extraordinary honours to the goddess; and as soon as they arrive at mount Eryx, lay aside all the insignia of power, in order to amuse themselves gaily and at their ease, with their mistresses, that they may thus render the goddess propitious. The Roman senate, with singular piety, have issued a decree, authorizing seventeen of the most faithful cities in Sicily, to wear gold in honour of the goddess, and to guard her temple with two hundred soldiers.
 
 Both the inhabitants and strangers daily offered sacrifices to 
 Venus, on the great altar of the temple, which was constructed in 
