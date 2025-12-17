@@ -352,39 +352,31 @@ Unties her zone, she bursts the verdant veil;
 
 Thro' all her sweets the rifling lover flies, 
 And as he breathes, her glowing fires arise. 
-'*¢ Let those love now, who never lov'd before ; 
-'« Let those who always lov'd, now love the more.” 
-Now fair Dione to the myrtle grove 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before; 
+"Let those who always lov'd, now love the more." 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Now fair Dione to the myrtle grove 
 Sends the gay nymphs, and sends her tender Love. 
-And shall they venture? is it safe to go ? 
-While nymphs have hearts, and Cupid wears a bow ? 
-Yes, safely venture, tis his mother's will; 
+And shall they venture? is it safe to go? 
+While nymphs have hearts, and Cupid wears a bow? 
+Yes, safely venture, 'tis his mother's will; 
 He walks unarm'd, and undesigning ill, 
 His torch extinct, his quiver useless hung, 
 His arrows idle, and his bow unstrung. 
 And yet, ye Nymphs, beware, his eves have charms, 
 And Love that's naked, still is Love in arms. 
-' " Let those love now, who never lov'd before ; 
-'"« Let those who always lov'd, now love the more.” 
-From Venus' bow'r to Delia's lodge repairs 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;'"Let those love now, who never lov'd before; 
+"Let those who always lov'd, now love the more."  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From Venus' bow'r to Delia's lodge repairs 
 A virgin train compleat with modest airs: 
-
-' Chaste Delia! grant our suit! or shun the wood, 
-
-* Nor stain this sacred lawn with savage blood. 
-
-' Venus, O Delia! if she cou'd persuade, 
-
-* Wou'd ask thy presence, might she ask a maid.' 
+'Chaste Delia! grant our suit! or shun the wood, 
+'Nor stain this sacred lawn with savage blood. 
+'Venus, O Delia! if she cou'd persuade, 
+'Wou'd ask thy presence, might she ask a maid.' 
 Here chearful quires for three auspicious nights 
-With songs prolong the pleasurable rites : 
-
-Here crouds in measures lightly-decent rove ; 
-
+With songs prolong the pleasurable rites: 
+Here crouds in measures lightly-decent rove; 
 Or seek by pairs the covert of the grove, 
-
 Where meeting greens for arbours arch above, 
-
 And mingling flowrets strow the scenes of love. 
 
 Here dancing Ceres shakes her golden sheaves : 
