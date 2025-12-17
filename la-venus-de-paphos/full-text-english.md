@@ -309,37 +309,37 @@ Both the inhabitants and strangers daily offered sacrifices to Venus, on the gre
 
 The principal festival of this ancient divinity occurred in the spring, at which season she is thought to exercise the most powerful sway over both men and animals. The most beautiful and complete description of the mode in which the Eve of Venus was celebrated, is contained in the poem entitled "Pervigilium Veneris," attributed to Catullus. We give a portion of this poem, as translated by Archdeacon Parnell.
 
-'She comes; to-morrow Beauty's Empress roves 
-Thro' walks that winding run within the groves ; 
-She twines the shooting myrtle into bow'rs, 
-And ties their meeting tops with wreaths of flow'rs, 
-Then rais'd sublimely on her easy throne 
-From Nature's pow'rful dictates draws her own. 
-'¢ Let those love now, who never lov'd before ; ' 
-"' Let those who always lov'd, now love the more.” 
-"Twas on that day which saw the teeming flood 
-Swell round, impregnate with celestial blood ; 
-Wand ring in circles stood the sinny crew, 
-The midst was left a void expanse of blue, 
-There parent Ocean work'd with heaving throes, 
-And dropping wet the fair Dione rose. 
-'¢ Let those love now, who never lov'd before ; 
-"' Let those who always lov'd, now love the more.” 
-She paints the purple year with vary'd show, 
-Tips the green gem, and makes the blossom glow. 
-She makes the turgid buds receive the breeze, 
-Expand to leaves, and shade the naked trees. ' @ 
-When gath'ring damps the misty nights diffuse, 
-She sprinkles all the morn with balmy dews ; 
-Bright trembling pearls depend at every spray, 
-And kept from falling, seem to fall away. 
-A glossy freshness hence the Rose receives, 
-And blushes sweet through all her silken leaves ; 
-(The drops descending through the silent night, 
-While stars serenely roll their golden light,) 
-Close 'till the morn, her humid veil she holds; 
-Then deckt with virgin pomp the flow'r unfolds. 
-Soon will the morning blush: ye maids! prepare, 
+'She comes; to-morrow Beauty's Empress roves  
+Thro' walks that winding run within the groves;  
+She twines the shooting myrtle into bow'rs,  
+And ties their meeting tops with wreaths of flow'rs,  
+Then rais'd sublimely on her easy throne  
+From Nature's pow'rful dictates draws her own.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before;  
+"Let those who always lov'd, now love the more."  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;'Twas on that day which saw the teeming flood  
+Swell round, impregnate with celestial blood;  
+Wand'ring in circles stood the sinny crew,  
+The midst was left a void expanse of blue,  
+There parent Ocean work'd with heaving throes,  
+And dropping wet the fair Dione rose.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before;  
+"Let those who always lov'd, now love the more."  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;She paints the purple year with vary'd show,  
+Tips the green gem, and makes the blossom glow.  
+She makes the turgid buds receive the breeze,  
+Expand to leaves, and shade the naked trees.   
+When gath'ring damps the misty nights diffuse,  
+She sprinkles all the morn with balmy dews;  
+Bright trembling pearls depend at every spray,  
+And kept from falling, seem to fall away.  
+A glossy freshness hence the Rose receives,  
+And blushes sweet through all her silken leaves ;  
+(The drops descending through the silent night,  
+While stars serenely roll their golden light,)  
+Close 'till the morn, her humid veil she holds;  
+Then deckt with virgin pomp the flow'r unfolds.  
+Soon will the morning blush: ye maids! prepare,  
 In rosy garlands bind your flowing hair ; 
 'Tis Venus' plant: the blood fair Venus shed, 
 O'er the gay beauty pour'd immortal red ; 
