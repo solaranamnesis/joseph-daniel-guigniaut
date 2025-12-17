@@ -8,11 +8,11 @@
 
 ---
 
-# [Introduction.]()
+# [Introduction.](#introduction-1)
 
-# [Preface.]()
+# [Preface.](#preface-1)
 
-# [The Venus of Paphos and her Temple.]()
+# [The Venus of Paphos and her Temple.](#the-venus-of-paphos-and-her-temple-2)
 
 ---
 
