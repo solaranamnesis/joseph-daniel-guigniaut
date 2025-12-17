@@ -8,6 +8,14 @@
 
 ---
 
+# [Introduction.]()
+
+# [Preface.]()
+
+# [The Venus of Paphos and her Temple.]()
+
+---
+
 # Introduction.
 
 (Extracted from _The Monthly Review_, Vol. 11, June 1829.)
@@ -447,6 +455,6 @@ To trace the worship of Venus to its source in Hindoostan, where it is still int
 
 ...
 
-# La Vénus de Paphos et son Temple.
+# The Venus of Paphos and her Temple.
 
 ...
