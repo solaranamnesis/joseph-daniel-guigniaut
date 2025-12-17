@@ -334,21 +334,21 @@ She sprinkles all the morn with balmy dews;
 Bright trembling pearls depend at every spray,  
 And kept from falling, seem to fall away.  
 A glossy freshness hence the Rose receives,  
-And blushes sweet through all her silken leaves ;  
+And blushes sweet through all her silken leaves;  
 (The drops descending through the silent night,  
 While stars serenely roll their golden light,)  
 Close 'till the morn, her humid veil she holds;  
 Then deckt with virgin pomp the flow'r unfolds.  
 Soon will the morning blush: ye maids! prepare,  
-In rosy garlands bind your flowing hair ; 
-'Tis Venus' plant: the blood fair Venus shed, 
-O'er the gay beauty pour'd immortal red ; 
-From Love's soft kiss a sweet Ambrosial smell 
-Was taught for ever on the leaves to dwell; 
-From gemms, from flames, from orient rays of light 
-The richest lustre makes her purple bright ; 
-And she to-morrow weds ; the sporting gale 
-Unties her zone, she bursts the verdant veil; 
+In rosy garlands bind your flowing hair;  
+'Tis Venus' plant: the blood fair Venus shed,  
+O'er the gay beauty pour'd immortal red;  
+From Love's soft kiss a sweet Ambrosial smell  
+Was taught for ever on the leaves to dwell;  
+From gemms, from flames, from orient rays of light  
+The richest lustre makes her purple bright;  
+And she to-morrow weds; the sporting gale  
+Unties her zone, she bursts the verdant veil;  
 
 Thro' all her sweets the rifling lover flies, 
 And as he breathes, her glowing fires arise. 
