@@ -299,42 +299,9 @@ She taught each lock its most becoming place."
 
 Being thus introduced to the goddess and her dwelling by one poet, Apollonius Rhodius, we shall proceed to borrow from another an account of the site and appearance of this palace. It was situated, says Claudian, on the eastern side of the island, on a lofty mountain, inaccessible to men. The rigour of winter, the burning heats of summer, are never felt upon this mountain; the winds fear to approach it; and a perpetual spring prevails there. A spacious plain occupies the summit, and is enclosed by a wall of gold, which prohibits the entrance of mortals. Flowers of eternal beauty spring up spontaneously, and their exquisite scents are carried hither and thither by the zephyrs. In a dark wood, which stands on one part of the plain, birds of the most lovely notes sing perpetually. Even the very trees are here capable of love, and entertain and are the objects of tender sentiments. The palm tree bends oyer its beloved; poplar sighs for poplar; plane for plane; and a soft murmur pervades the wood. Two fountains flow from this spot: the one sweet, the other so bitter that even honey is rendered disagreeable when mingled with its waters. In these fountains Cupid, it is said, dips his arrows. A thousand little loves, with their quivers on their shoulders, sport upon the banks. These little deities are all brethren, and resemble each other. They are the children of the nymphs. Cupid alone is the son of Venus. It is he, who, with his bow in his hand, rules over both heaven and earth; it is he who wounds princes with his arrows, while the other Loves shoot their darts at inferior persons. In those lovely regions reign liberty, the placable anger of lovers, vigils steeped in wine, tears unshed, the sweet paleness of lovers, their timid boldness, agreeable fears, and insecure pleasures. Broken vows flit about upon their light wings, and proud, self-confiding youth forbids age to enter the grove. The palace of the goddess reflects the rays of the sun in a thousand ways; it is constructed of gold and jewels with the greatest art; its beams are of emerald, its pillars of jacinth, its walls of beryl, its threshold of jasper, and its floors of agate. The atmosphere is filled with all the perfumes of Arabia. The Graces stand at the side of the goddess, and while one of them pours out the nectar, the other two adjust her ringlets in an easy negligent manner, which enchants the eye.
 
-Entering the Peloponnesus we find at Lacedemon, a round 
-temple dedicated to Olympian Jupiter and Venus. Another temple 
-in the same city was sacred to the worship of Venus-Juno. At 
-Megalopolis, in Arcadia, at Tegea, at Olympia, were temples de- 
-dicated to this goddess; and at Elis, near the forum, and behind 
-the portico erected from the spoils of the Corcyreans, there was 
-also a temple of Venus, with a small estate belonging to it. The 
-statue of the goddess, formed of gold and ivory by Phidias, stood 
-with one foot upon a tortoise, to signify, says Plutarch, that married 
-women should remain at home and be silent. At Sicyon the wor- 
-ship of Venus was conducted in a very extraordinary manner. To 
-cast a kind of mystery around the rites, no person was permitted to 
-enter the temple but the sacristan and priestess, who, while they offi- 
-ciated in the temple, were compelled to lead a life of rigid chastity. 
-The worshippers were constrained to kneel on the threshold of the 
-temple, and from thence offer their vows to the unseen deity within. 
-A very learned writer supposes that this custom was derived from 
-Egypt, where, from the melancholy character of the people, it was 
-thought that fasting and abstaining even from lawftl pleasures 
-were agreeable to heaven. 
+Entering the Peloponnesus we find at Lacedemon, a round temple dedicated to Olympian Jupiter and Venus. Another temple in the same city was sacred to the worship of Venus-Juno. At Megalopolis, in Arcadia, at Tegea, at Olympia, were temples dedicated to this goddess; and at Elis, near the forum, and behind the portico erected from the spoils of the Corcyreans, there was also a temple of Venus, with a small estate belonging to it. The statue of the goddess, formed of gold and ivory by Phidias, stood with one foot upon a tortoise, to signify, says Plutarch, that married women should remain at home and be silent. At Sicyon the worship of Venus was conducted in a very extraordinary manner. To cast a kind of mystery around the rites, no person was permitted to enter the temple but the sacristan and priestess, who, while they officiated in the temple, were compelled to lead a life of rigid chastity. The worshippers were constrained to kneel on the threshold of the temple, and from thence offer their vows to the unseen deity within. A very learned writer supposes that this custom was derived from Egypt, where, from the melancholy character of the people, it was thought that fasting and abstaining even from lawful pleasures were agreeable to heaven.
 
-Venus had several templesat Athens. In the quarterof the city 
-called ‘‘ the gardens,” there was a temple, near which the goddess 
-was represented by a quadrangular stone, with an inscription en- 
-graven upon it, in which Venus was said to be more ancient than 
-the Fates. Above the Ceramicus was another temple to Venus, 
-containing a statue from the hand of Phidias. One of the 
-temples of this goddess was dedicated to her under the name 
-of Venus Psithyros, or the whisperer, because the women who 
-addressed their vows to her, whispered in the ear of the statue. 
-Upon this practice Seneca remarks,—* Turpissima vota diis insus- 
-urrunt,si quis ad moverit auem, conticescent, et quod scire hominem 
-nolunt, des narrant.” One of the three parts of the Pirzeus was 
-called Aphrodisium, and probably derived its name from the 
-temple erected there by Conon, in memory of the victory ob- 
-tained over the Lacedemonians, near Cnidos in Caria. ’ 
+Venus had several temples at Athens. In the quarter of the city called "the gardens," there was a temple, near which the goddess was represented by a quadrangular stone, with an inscription engraven upon it, in which Venus was said to be more ancient than the Fates. Above the Ceramicus was another temple to Venus, containing a statue from the hand of Phidias. One of the temples of this goddess was dedicated to her under the name of Venus Psithyros, or the whisperer, because the women who addressed their vows to her, whispered in the ear of the statue. Upon this practice Seneca remarks, --- "Turpissima vota diis insusurrunt, si quis ad moverit auem, conticescent, et quod scire hominem nolunt, des narrant." One of the three parts of the Piræeus was called Aphrodisium, and probably derived its name from the temple erected there by Conon, in memory of the victory obtained over the Lacedemonians, near Cnidos in Caria.
 
 The epithets of this goddess were numerous and significant ; but 
 we shall abstain from repeating them. From her temple, however, 
