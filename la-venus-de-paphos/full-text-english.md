@@ -4,11 +4,13 @@
 
 ### Professor of Greek Literature, etc.
 
-### Extract from _The Monthly Review_, Vol. 11.
-
-## Paris. June 1829.
+## Paris. June 1827.
 
 ---
+
+# Introduction.
+
+(Extracted from _The Monthly Review_, Vol. 11, June 1829.)
 
 The student of human nature cannot with impunity neglect researches into antiquity. To obtain just notions of society as it now exists, we must trace it from its feeble beginnings, to its greatest known development, watch its increase, its modifications, its vicissitudes, and learn exactly to appreciate every successive form through which it has paseed. It is unquestionably an easy matter to affect a disdain for the wanderings of man's intellect, before the light of truth burst in upon it. But this contempt, even were it real and well-founded, will not satisfy the mind. It is more agreeable to understand than to despise our forefathers; and therefore, researches into their opinions, particularly such as regarded their religion and philosophy, possess peculiar attractions for every individual above a mere newspaper or novel reader.
 
@@ -440,3 +442,11 @@ The well pleased heaven assumes a brighter ray
 At thy approach, and makes a double day.'
 
 To trace the worship of Venus to its source in Hindoostan, where it is still intimately connected with Sivaism, it would be necessary to enter into details by no means suited to the pages of a popular Review. The Orientals are incapable of shrouding their symbols in those veils of beauty, which the Grecians threw over all their worship, and leave too much open to the eye of sense.
+
+# Preface.
+
+...
+
+# La Vénus de Paphos et son Temple.
+
+...
