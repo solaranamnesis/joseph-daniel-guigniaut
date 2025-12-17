@@ -402,7 +402,7 @@ In circles seats them round the bank of green;
 And 'lovely girls, (she whispers) guard your hearts;  
 'My boy, tho' stript of arms, abounds in arts.  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Let those love now, who never lov'd before;  
-Let those who always lov'd now love the more."  
+"Let those who always lov'd now love the more."  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Let tender grass in shaded alleys spread,  
 Let early flow'rs erect their painted head.  
 To-morrow's glory be to-morrow seen,  
