@@ -2,20 +2,112 @@
 
 ## Par J. D. Guigniaut,
 
-### Professeur ...
+### Professeur de Littérature grecque et Maitre de Conférence a l'École préparatoire de l'Académie de Paris, Membre de la Société asiatique.
 
-#### Disseratation ...
+#### Dissertation jointe aux Notes du Tome 4 des Œuvres complètes de Tacite, par J.-L. Burnouf, Professeur au Collége royal de France.
 
 ### Paris, 1827.
 
-#### Librairie classique de L. Hachette, ...
+#### Librairie classique de L. Hachette, Élève de l'ancienne École normale, Rue Pierre-Sarrazin, N° 12 ; et chez Treuttel et Würtz, Libraires, Rue de Bourbon, N° 17.
 
 ---
 
+# [Avant-propos.]()
+
+# [La Vénus de Paphos et son Temple.]()
+
 ---
+
+A Monsieur Frédéric Creuzer, Professeur de Littérature ancienne a l'Université de Heidelberg, Auteur de la Symbolique et de la Mythologie des Peuples anciens.
 
 # Avant-propos.
 
+Nous avons voulu faire de cette courte Dissertation un double quoique bien faible hommage de la reconnaissance au Maître habile dont les ingénieuses méthodes et les admirables exemples dirigèrent nos premiers pas dans le vestibule de l'antiquité ; au Savant profond dont les révélations laborieuses et les fécondes inspirations nous en ouvrirent le sanctuaire. Elle sera en même temps un prélude à quelques morceaux du même genre, qui accompagneront les volumes suivans du _Tacite_ de M. Burnouf, et à la publication assez prochaine de la seconde livraison des _Religions de l'Antiquité_, d'après M. Creuzer, laquelle comprendra, outre les religions de l'Asie occidentale, les origines et toute la partie nationale et populaire des religions de la Grèce et de l'Italie anciennes.
+
+Tacite, à la veille de cette grande révolution religieuse qui allait élever un seul Dieu et un seul culte sur les débris de tant de dieux et de cultes divers, semble recueillir avec un curieux pressentiment, toutes les fois que l'occasion s'en présente, les titres épars de ces temples antiques que menaçait une ruine commune. Racontant, au début du second livre des Histoires (chap. 2-4), le retour de Titus en Judée, auprès de Vespasien son père, il nous montre ce prince visitant dans l'île de Chypre le temple de la Vénus de Paphos, célèbre par le concours des indigènes et des étrangers.
+
+« Je ferai, dit-il, sur l'origine de ce culte, l'établissement du temple, la forme de la déesse, qui n'est nulle part ainsi représentée, une courte digression. Le fondateur du temple fut, suivant la tradition la plus ancienne, le roi Aérias ; nom que quelques-uns prétendent au contraire être celui de la déesse. Une opinion plus moderne est que le temple fut consacré par Cinyras, au lieu même où aborda Vénus après que la mer l'eut conçue. On ajoute que la science des aruspices et les secrets de cet art y vinrent du dehors, apportés par le Cilicien Tamiras, et qu'il fut réglé que les descendans de ces deux familles présideraient de concert à tous les soins du culte. Bientôt, pour qu'il ne manquât à la maison royale aucune prééminence sur une race étrangère, les nouveaux-venus renoncèrent à la science qu'ils avaient apportée, et le prêtre que l'on consulte est toujours un descendant de Cinyras. Toute victime est reçue, pourvu qu'elle soit mâle. C'est aux entrailles des chevreaux qu'on a le plus de confiance. Il est défendu d'ensanglanter les autels ; des prières et un feu pur sont tout ce qu'on y offre, et, quoiqu'en plein air, jamais la pluie ne les a mouillés. La déesse n'est point représentée sous la figure humaine : c'est un bloc circulaire, qui, s'élevant en cône, diminue graduellement de la base au sommet. La raison de cette forme est ignorée. »
+
+« Après avoir contemplé la richesse du temple, les offrandes des rois, et toutes ces antiquités que la vanité des Grecs fait remonter à des époques inconnues, Titus, etc. »
+
+(_Traduction de M. Burnouf._)
+
 # La Vénus de Paphos et son Temple.
+
+Le passage de Tacite que nous venons de citer d'après son éloquent traducteur, est sans contredit le document le plus important qui nous ait été conservé sur la Vénus de Paphos et son temple, si célèbre dans l'antiquité. Toutefois il est loin de nous donner sur les véritables origines de ce culte des renseignemens suffisans. Quant à l'histoire et à l'établissement du temple, il laisse peu de chose à désirer, si ce n'est la figure même de cet édifice ; et s'il décrit celle de l'idole singulière qui représentait la déesse, il garde un silence prudent sur la raison de cette forme évidemment symbolique, aussi bien que sur la part qu'il faut assigner aux fables grecques dans les traditions du temple de Paphos.
+
+Tout annonce que cette part dut être considérable, et que les Grecs, selon leur constante habitude, s'étaient plu à mélanger leurs mythes nationaux avec les mythes étrangers, dans cette longue généalogie qu'Apollodore avait sans doute empruntée à ceux de ses compatriotes qui les premiers écrivirent sur l'île de Cypre.* On y voit _Cinyras_, descendant au sixième degré de l'Aurore et de Céphale, fils de Hersé et petit-fils de Cécrops, premier roi de l'Attique. Ici se révèle clairement l'ouvrage des colons Athéniens et autres, fondateurs de plusieurs villes en Cypre, après le sac de Troie. Par un mélange semblable des traditions, le célèbre Evagoras, roi de Salamine, faisait remonter sa famille d'un côté à Teucer, fils de Télamon, de l'autre à Cinyras, du chef d'une de ses filles.* Tithon, fils de l'Aurore, dans la généalogie précitée, et son époux dans toutes les autres, Phaëthon et Astynoüs, qui viennent ensuite et semblent tenir la place de Memnon ou font songer à lui, rendent raison de l'origine éthiopienne, attribuée par Hérodote à l'une des branches de la population de Cypre, d'après les récits des Cypriens eux-mêmes, ici peut-être encore écho des fables grecques.* Peut-être aussi sous ces noms, comme sous celui d'_Aërias_, premier auteur du temple élevé en l'honneur de Vénus à Paphos, et qui était le plus ancien de tous les temples de l'île suivant la tradition consignée ailleurs par Tacite,* se cachent d'antiques et primitives relations avec l'Égypte, appelée d'abord _Aëria_, selon quelques-uns.* Mais nous pensons que le nom d'_Aërias_ ou _Aëria_, donné par d'autres à la déesse même de Paphos, se rapproche naturellement de celui d'_Aoüs_, premier roi du pays, lequel n'est autre que Tithon ou Phaëthon, comme nous l'apprennent des témoignages formels, et signifie _Enfant de l'Aurore_.* Ainsi Aërias et Tithon, appelé encore _Astræus_, ne font qu'un, et tous ces êtres de lumière viennent en quelque sorte se donner rendez-vous dans _Cinyras_ et dans _Adonis_, son fils, honoré en Cypre sous le nom d'_Aô_, comme l'Aurore se confond elle-même avec Vénus-Aëria, enlevant tour à tour Céphale, Tithon, Phaëthon et Adonis, pour les consacrer aussi bien que Cinyras aux soins de son culte.*
+
+*) Apollod. Biblioth. 3, 14, p. 354, Heyn. ; _add._ obss. p. 323 sqq. ; _ejusd._ obss. ad Homer. Iliad. 11., 20, tom. 6., 118. _Confer._ Meursii Cyprus, 1., 1., Op. t. 3., p. 550 sqq., Flor. 1744.
+
+*) Pausan. 1., 3. _Cf._ Isocrat. Evagor. Encom. c. 5 sqq., t. 1., _ed._ Coray.
+
+*) Herodot. 7., 90.
+
+*) Annal. 3., 62.
+
+*) C'est l'opinion de Creuzer, _Symbolik und Mythologie_, t. 1., p. 341 sq. Ce nom, du reste, était appliqué à des pays fort divers, à Cypre elle-même, à la Crète, à l'île de Thasos, à la Libye, à l'Éthiopie, à la Sicile. Il est donc bien difficile d'en tirer aucune conclusion déterminée relativement à l'origine de ces mythes. _Confer._ A. Gell. 14., 6 ; Isidor. Orig. 9., 2 ; Hesych. _s. v._
+
+*) Etymol. Magn. _voc._ Ἀῶος. _Confer._ Heyn. ad Apollodor. _ubi supra_ ; Religions de l'antiquité, d'après Creuzer, tom. 1., part. 1., p. 482, 485 sq. --- Un autre rapprochement, sur la portée duquel nous ne voulons rien préjuger ici, nous est suggéré par Hésychius. Ce lexicographe dit qu'en étolien _aëria_ signifie _nuage_, ὀμίχλη. Or, en sanscrit _Abhradatta_ veut dire _donné par le nuage, enfant du nuage_, et rappelle involontairement _Aphrodite_ ou _Aphrodita_, nom grec de Vénus. Dans Homère ἠερίη est employé avec un rapport évident à l'aurore, au crépuscule ; ἠὴρ pour ἀὴρ est la région des nuages, un nuage même. Iliad. 1., 497, 5., 864, 11., 751, etc.
+
+*) Heyne et Creuzer _ubi supra_, et les auteurs qu'ils ont cités, entre autres Pindar. Pythic. 2., 27 sqq., _et ibi_ Schol., tom. 2., p. 508, Heyn. Κινύραν ... Ἱερέα κτίλον Ἀφροδίτας.
+
+Il y a plus : c'est que Cinyras et Adonis pourraient bien à leur tour n'être qu'un seul et même personnage sous deux noms divers, et nous aurions ici un exemple frappant d'un phénomène qui n'est pas rare dans les religions anciennes, où le dieu, objet du culte, figure aussi comme son premier instituteur, comme le premier roi et le premier prêtre tout ensemble. Et d'abord, Adonis avait régné en Cypre ainsi que Cinyras* : Cinyras, d'un autre côté, était originaire de Byblos en Phénicie, ville fameuse par le culte d'Adonis ou Thammuz, divinité toute phénicienne ; il avait bâti un temple à Vénus sur le mont Liban, et suivant la généalogie même qui nous occupe, c'était d'une fille de Pygmalion, roi Phénicien, qu'il avait eu Adonis.* Or, celui-ci se nommait aussi _Gingras_, du nom de la flûte de deuil en Phénicie et en Carie ; et le nom de _Cinyras_ ou _Cinyra_, déjà si rapproché de _Gingras_, s'appliquait à un instrument de musique en même temps qu'il exprimait le deuil et les larmes.* Ajoutons que l'amant infortuné de Vénus, Adonis, s'appelait à Lacédémone _Ciris_ ou _Cyris_, dénomination que l'on pourrait rapporter à Κύριος, et qui serait alors une traduction exacte du phénicien _Adonaï_ ou le Seigneur, mais dont cette étymologie ne rend peut-être pas une raison suffisante.* Ce qui est plus sûr c'est que, comme Cinyras et ses descendans furent, suivant la tradition, ensevelis dans le temple de Paphos, Vénus elle-même était censée y reposer auprès de son amant Cinyras, ici évidemment identifié avec Adonis.*
+
+*) Etymolog. M. _loc. laud._
+
+*) Strab. 16., p. 755, Casaub. ; Lucian. de Dea Syria, c. 9 ; Apollodor. _l. l._
+
+*) Pollux Onomast. 4., 10, 76 ; Hesych. 2., p. 264 sq. _ibique_ Alberti. _Cf._ Phot. Lex. p. 123.
+
+*) Hesych. 2., p. 266, 387, Albert. ; _conf._ Etymol. M. _s. v._ Suivant cette dernière autorité, Κίῤῥις serait un mot proprement cyprien.
+
+*) Clem. Alex. Protrept. cap. 3, p. 40, Potter. ; Arnobius adv. gent. 6., p. 85, ed. Paris. 1666 ; Schol. in Gregor. Naz. Carm., p. 35. --- On trouvera tous les développemens nécessaires sur le culte d'Adonis, sur les rapports de ce dieu avec Cinyras, etc., dans le livre 4, tome 2., actuellement sous presse, des Religions de l'antiquité d'après Creuzer, de qui nous avons emprunté en grande partie les rapprochemens précédens.
+
+Voilà donc qu'à travers le prestige des mythes grecs nous entrevoyons tout à la fois et la véritable origine et le vrai caractère du culte de Paphos. Ce fut un culte de douleur en même temps que de volupté, un culte asiatique et phénicien ; les noms même de Cinyras et d'Adonis en font foi, et tout porte à penser d'ailleurs que, dès une époque assez reculée, les Phéniciens avaient colonisé l'île de Cypre.* Ce furent eux qui bâtirent l'antique _Golgi_, autre nom de racine phénicienne ; qui instituèrent en ce lieu et sans doute aussi dans l'ancienne Paphos, les honneurs de la Vénus-Uranie ou Céleste, long-temps avant que l'Arcadien Agapénor vînt fonder la ville nouvelle de Paphos, au retour du siége de Troie, et la décorer de temples superbes.* Cette Vénus était la même divinité que l'on adorait sous les noms divers de Baaltis ou Dioné, d'Astarté, de Sémiramis, etc., à Byblos, à Sidon, à Ascalon, en un mot dans toute la Phénicie et la Syrie, et qui avait des rapports certains avec la Mylitta de Babylone, l'Alilat des Arabes, la Mitra et l'Anaïtis des Perses et des Arméniens.* C'était la grande déesse de la nature, considérée dans son apparition céleste, et plus ou moins identifiée tantôt avec la lune, tantôt avec la planète de Vénus, l'étoile du matin, l'aurore. Selon le témoignage d'Hérodote, fondé sur celui des Cypriens eux-mêmes, elle fut apportée d'Ascalon en Cypre, et le père de l'histoire la rapproche de la Vénus de Cythère, dont le temple avait été également fondé par des Phéniciens ou Syriens* ; de Cypre ou de Cythère elle passa dans le Péloponèse et dans le reste de la Grèce, où elle le confondit plus ou moins avec l'antique divinité nationale, Aphrodite.* Les Grecs et les Romains retrouvant dans différentes contrées l'Astarté phénicienne, la nommèrent tantôt Héra ou Junon, c'est-à-dire la maîtresse, la dame par excellence, comme à Carthage et au promontoire de Lacinium, tantôt Aphrodite ou Vénus, comme au mont Eryx en Sicile. Un fait bien remarquable, et qui vient singulièrement à l'appui des origines asiatiques données à la civilisation de l'Étrurie, c'est qu'au rapport de Strabon* Junon ou la grande déesse populaire de ce pays y portait le nom de _Kupra_ ou _Cypra_, qui nous ramène involontairement à l'île de Cypre.
+
+*) Creuzer, _Symbolik und Mythologie_, t. 2., p. 91 sqq., et le tom. 2., liv. 4, chap. 3, art. 2, des Relig. de l'antiq. _Conf._ Münter, _der Tempel der himmlischen Gœttin zu Paphos_, p. 2 sqq., _et ibi citata_ ; Mannert, _Géographie_, 6., 1, p. 555.
+
+*) Pausan. 8., 5 ; Raoul-Rochette, Hist. de l'établissem. des colon. grecq., tom. 2., p. 391 sq. _Cf._ Strab. 14., p. 683 ; Münter, ouvr. c., p. 5, contre Étienne de Byzance et ceux qui avec lui veulent gréciser toute l'île de Cypre, dès l'origine.
+
+*) _Voy._ les preuves et les développemens dans Creuzer, _Symb. u. Myth._, 1., p. 730 sqq. ; 2., 24 sqq., 34, 61, 75, 84, 95, etc. ; surtout Relig. de l'antiq. t. 2., l. 4, chap. 3, _passim. Confer._ Münter, _ubi supra_.
+
+*) Herodot. 1., 105. _Cf._ Pausan. 1., 14, 3., 23.
+
+*) Cette vue nous est commune avec O. Müller, dans sa belle et savante histoire des Doriens, en allem., 1., 405 sq.
+
+*) Lib. 5., p. 241 Casaub. _Cf._ Micali, l'Italie av. la dom. des Rom. t. 2., p. 51 de la trad. fr.
+
+*) Le nom de _Cypre_ est ordinairement dérivé de _Cyprus_, fille ou fils de Cinyras, d'un arbre ou d'une ville ainsi appelés, etc. _Cf._ Meursius, 1., cap. 2. Cette fille ou ce fils de Cinyras n'est sans doute pas autre que la déesse patrone de l'île, Vénus, qui réunissait les deux sexes, ainsi qu'on le verra plus bas. En nous rappelant le nom du cuivre, _æs cyprium, cuprum_, qui, dès les temps homériques, était travaillé en Cypre avec beaucoup d'art, puisque Agamemnon portait une cuirasse faite d'une composition de ce métal et que Cinyras, suivant la tradition, lui avait envoyée (Iliad. 11., 19 sq.), nous ne saurions nous défendre d'un nouveau rapprochement. _Couvera_, dans les religions de l'Inde, est le dieu des métaux, des richesses, une espèce de Fortune ; il réside au sein des montagnes, et il est environné de _Kinnaras_, génies de la musique. Vénus-Cyprus ou Cypra, Vénus-Uranie, la plus ancienne des Parques, la même que la Destinée et la Fortune (Pausan. 1., 19, 7., 26), son époux Vulcain, ses prêtres les Cinyrades, dont le chef porte le nom d'un instrument de musique, seraient-ils des rencontres de pur hasard ? _Voy._ ci-dessus, et Relig. de l'ant., t. 1., p. 248 sq.
+
+Les premiers rois de cette île, descendans de Cinyras, et pour cette raison appelés _Cinyrades_, exerçaient à la fois les fonctions de la royauté et celles du sacerdoce. Est-il vrai, comme le pense Creuzer,* qu'il n'en ait pas toujours été ainsi, et qu'à une époque antérieure, les _Tamirades_, autre famille sacrée, originaire de Cilicie, fussent exclusivement en possession des fonctions sacerdotales, tandis que le pouvoir royal aurait seul appartenu aux Cinyrades ? c'est ce qu'il ne nous semble pas possible de conclure du texte de Tacite, où il est dit au contraire que Tamiras ayant importé de Cilicie en Cypre la science et l'art des aruspices, les Tamirades, ses descendans, furent associés, sans doute comme devins, au sacerdoce des Cinyrades, qui dans la suite enlevèrent à cette famille étrangère le privilége qu'ils lui avaient formellement reconnu, et concentrèrent en eux seuls le sacerdoce et la divination avec la royauté (_regium genus ... tantum Cinyrades sacerdos consulitur_). Cependant il nous paraît que jadis une colonie cilicienne avait dû jouer un grand rôle dans l'île de Cypre, qui peut-être même devait à la Cilicie une partie de sa population et des institutions différentes de celles que les Phéniciens y firent prévaloir. Nous en trouverions une preuve dans la généalogie rapportée plus haut, et où figure au cinquième degré un personnage nommé _Sandacus_, immédiatement avant Cinyras. Ce Sandacus, pas plus que Cinyras et Adonis, n'est un nom ni un héros grec. On pourrait, il est vrai, le croire Phénicien où Syrien comme ceux-ci ; car Apollodore le fait venir de Syrie en Cilicie, où il fonda la ville de Célendéris, qui le portait sur ses monnaies,* épousa _Pharnace_, fille de Mégessarus,* et donna le jour à Cinyras, qui retourna en Syrie. Mais le passage même de Tacite que nous commentons nous défend d'interpréter en ce sens celui d'Apollodore ; il donne aux Tamirades ciliciens une origine évidemment différente de celle des Cinyrades, une origine étrangère (_peregrinam stirpem_) ; et d'ailleurs une foule d'autres raisons nous engagent à rattacher plutôt Sandacus à l'Hercule _Sandon_ de Lydie (le même que le _Sandes_ de la Perse), héros solaire, efféminé, asservi à Omphale, c'est-à-dire à la lune, devenue pouvoir mâle. Cette explication nous semble d'autant plus naturelle, que _Pharnace_ rappelle _Pharnaces_, nom sous lequel était adoré le dieu-lune dans les religions du Pont.* Un rapprochement non moins intéressant, et qui confirme celui que nous avons tenté plus haut entre le nom de Cypre et la déesse étrusque Cupra, c'est que l'un des trois noms de l'Hercule Sabin était _Sancus_ ?
+
+*) _Symbolik_, 1., p. 342 sqq., et le tom. 2., liv. 4 des Relig. de l'antiq.
+
+*) _Voy._ Pellerin, Recueil, tab. 73 ; et dans Hunter. _Cf._ Eckhel Doctrina Num. Vet., 3., p. 51 sq.
+
+*) Ce nom chaldéen ou assyrien d'origine ne voudrait-il pas dire le _grand sare_, la _grande année_, sens qui rentrerait tout-à-fait dans le caractère sidérico-mythologique de ces religions ?
+
+*) Strab. 12., p. 557. _Cf._ Creuzer, 1., 345 sqq ; 2., 32, 224, 233 ; et Rel. de l'antiq., liv. 4., chap. 3 et 5.
+
+*) _Sancus-Semo-Fidius._ Varro de _L. L._, 4., 10 ; Propert., 4., 10 ; Ovid. Fastor. 6., 213-217 ; Augustin. de Civ. Dei, 18., 19. _Cf._ Creuzer, 2., p. 964 sq., et Relig. de l'ant., t. 2., liv. 5, sect. 2, chap. 5, art. 1. --- Nous ne voudrions pas trop insister sur ce dernier rapprochement, _Sancus_ paraissant être le même nom que _Sanctus_, c'est-à-dire le dieu de la foi jurée (_me Dius fidius, me Hercules_), et dérivant comme lui de la racine _sancire_, laquelle au reste se retrouve dans le sanscrit _sandj_, adhérer, être fidèle. Cependant il est remarquable que Sancus soit un Hercule aussi bien que Sandon et Sandacus : ces trois noms n'auraient-ils pas une origine commune ainsi que les trois personnages ?
+
+Ainsi voilà les religions de l'antique Italie rattachées sur deux points importans à celles de l'Asie-Mineure. Un troisième point de contact, c'est l'art de lire l'avenir dans les entrailles des victimes, qui était également en vigueur dans l'Étrurie, en Lydie, en Cilicie et dans l'île de Cypre, comme il l'avait été chez les plus anciens Grecs.* Nous serions tentés de chercher le principe et la source première de ces trois grands rapports plutôt dans la Haute-Asie que sur les côtes de Syrie ; et dans les cultes primitifs de l'Assyrie et peut-être de la Perse, peut-être même de l'Inde, plutôt que dans la religion phénicienne. Quoi qu'il en soit de cette hypothèse qui aurait besoin d'un développement plus étendu, nous savons par Hésychius que le grand-prêtre du temple de Paphos se nommait ἀγήτωρ.* Il jouissait de si hautes prérogatives que, lorsque Caton prit possession de l'île au nom du peuple romain, il crut dédommager suffisamment Ptolémée, fils de Ptolémée-Aulétès, qui en était roi, en lui faisant déférer ce sacerdoce suprême.* On voit qu'à cette époqué, après les longues révolutions qui avaient agité l'île de Cypre, successivement soumise aux Perses et aux Égyptiens, le sacerdoce et la royauté se trouvaient divisés de nouveau. Les victimes immolées par des prêtres-devins, probablement dans une cour extérieure du temple, puisque le sang ne pouvait couler sur l'autel, devaient être mâles ; ce qui nous rappelle cet autre temple de Vénus surnommée _Acræa_, dans la même île, dont l'accès et même la vue étaient défendus aux femmes.* Il y avait là sûrement, comme le pense M. Münter,* un motif mystique qu'il ne serait peut-être pas très difficile de pénétrer. C'était sans doute le même qui faisait attacher une foi singulière aux présages tirés des entrailles des chevreaux ou des boucs, symboles favoris des divinités fécondantes.* Le principal autel devait être situé dans la cour intérieure du temple (à moins que le temple lui-même ne fût hypæthre), puisque d'après la tradition populaire rapportée par Tacite et par Pline l'ancien,* quoique en plein air, jamais la pluie ne le mouillait. La pureté et la simplicité du culte qui y était offert contrastent d'une manière frappante avec ce que les auteurs nous apprennent des horribles sacrifices consommés dans les autres temples de l'île, notamment à Salamine et à Amathonte, en l'honneur de Jupiter, c'est-à-dire selon toute apparence, du Baal phénicien ou syrien.* Münter conjecture qu'à Paphos l'on prédisait encore l'avenir par le vol des oiseaux et surtout des colombes, qui, dédiées à la déesse du lieu, devaient y être prophétiques aussi bien qu'à Dodone, sur l'Éryx et dans tous les sanctuaires de Vénus-Astarté en Syrie et ailleurs. Les poissons lui étaient-ils également consacrés, comme aux déesses Dercéto et Atergatis, c'est une question que nous ne discuterons point ici et qui souffre plus d'une difficulté.*
+
+*) Creuzer, 2., p. 937, et Relig. de l'antiq. liv. 5., sect. 2, c. 4, art. 2.
+
+*) Hesych. _s. voc._, t. 1., p. 47, Alb.
+
+*) Plutarch. Cat. min. c. 35, p. 66, t. 7., Coray.
+
+*) Ce temple était situé sur un promontoire nommé Olympe. Strab. 14., pag. 682.
+
+*) Ouvr. c., p. 21.
+
+*) Peut-être était-ce la croyance à un pouvoir générateur, unique et se suffisant à lui-même pour engendrer toutes choses, pouvoir ordinairement représenté par la figure de l'Hermaphrodite qui réunit les deux sexes : on trouvera plus loin une Vénus de Cypre ainsi représentée. Il y avait quelque chose de tout-à-fait analogue dans la religion de Mithra, telle qu'on la concevait en Asie-Mineure : « Mithras, est-il dit, haïssait les femmes, et il féconda un rocher, etc. » _Conf._ Creuzer, 1., 775, et Relig. de l'ant., t. 1., p. 371 sqq., coll. 346 sq.
+
+*) Tac. _l. l._ ; Plin. H. N. 2., 96, où il faut probablement lire _aram_ au lieu de _aream_.
+
+*) Lactant. Instit. Divin. 1., 21 ; Ovid. Metam. 10., 224 ; Lutat. in Epitom. _Cf._ Athenæus, 4., 14 ; Münter, _l. l._ p. 22 sq.
 
 ...
