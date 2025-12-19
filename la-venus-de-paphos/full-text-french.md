@@ -12,6 +12,10 @@
 
 ---
 
+# [Avant-propos.](#avant-propos-1)
+
+# [La Vénus de Paphos et son Temple.](#la-vénus-de-paphos-et-son-temple-2)
+
 ---
 
 A Monsieur Frédéric Creuzer, Professeur de Littérature ancienne a l'Université de Heidelberg, Auteur de la Symbolique et de la Mythologie des Peuples anciens.
