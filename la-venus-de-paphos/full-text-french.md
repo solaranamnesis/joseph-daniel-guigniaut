@@ -144,46 +144,9 @@ Il nous reste à parler de la structure du temple et de la figure de l'idole qui
 
 *) M. Münter en cite plusieurs à Copenhague, et nous-mêmes nous sommes assez heureux pour en pouvoir publier un d'autant plus caractéristique qu'il porte deux colombes : _voy._ la planche additionnelle indiquée ci-dessus, n° 10. Nous devons ce monument à la précieuse collection de M. Lajard, dont on attend avec impatience l'ouvrage couronné sur le culte et les mystères de Mithra.
 
-Sur les médailles qui sont aujourd'hui pour nous, avec quel-
-ques pierres gravées, les seuls monumens du culte de Paphos,
-c'est dans le sanctuaire même de son temple que paraît la déesse,
-sous sa forme conique et plus ou moins pyramidale, tantôt nue,
-tantôt ornée, à ce qu'il semble, de divers accessoires, presque
-toujours en manière de couronnement. A ses côtés ou au-de-
-vant d'elle, brillent deux flambeaux, signes d'orgies noctur-
-nes, comme le pense Creuzer.* Peut-être aussi ces flambeaux
-éclairaient-ils simplement la Cella, tandis que l'idole reposait
-dans les ténébreuses profondeurs de l'Adytum, selon la cou-
-tume. Il est impossible, au surplus, d'après la nature et l'im-
-perfection des représentations figurées qui nous restent, de se
-faire une idée satisfaisante, tant de la forme générale de l'édi-
-fice sacré que du rapport de ses différentes parties entre elles ;
-et Tacite aussi bien que les autres écrivains de l'antiquité nous
-laisse à ce sujet dans une ignorance à peu près complète. L'on
-ne saurait même déterminer avec probabilité la situation de cet
-autel miraculeux que les eaux du ciel respectaient, à moins
-qu'il ne fût placé dans cette enceinte demi-circulaire, espèce
-
+Sur les médailles qui sont aujourd'hui pour nous, avec quelques pierres gravées, les seuls monumens du culte de Paphos, c'est dans le sanctuaire même de son temple que paraît la déesse, sous sa forme conique et plus ou moins pyramidale, tantôt nue, tantôt ornée, à ce qu'il semble, de divers accessoires, presque toujours en manière de couronnement. A ses côtés ou au-devant d'elle, brillent deux flambeaux, signes d'orgies nocturnes, comme le pense Creuzer.* Peut-être aussi ces flambeaux éclairaient-ils simplement la Cella, tandis que l'idole reposait dans les ténébreuses profondeurs de l'Adytum, selon la coutume. Il est impossible, au surplus, d'après la nature et l'imperfection des représentations figurées qui nous restent, de se faire une idée satisfaisante, tant de la forme générale de l'édifice sacré que du rapport de ses différentes parties entre elles ; et Tacite aussi bien que les autres écrivains de l'antiquité nous laisse à ce sujet dans une ignorance à peu près complète. L'on ne saurait même déterminer avec probabilité la situation de cet autel miraculeux que les eaux du ciel respectaient, à moins qu'il ne fût placé dans cette enceinte demi-circulaire, espèce de vestibule découvert ou de cour intérieure, que tous les monumens indiquent au-devant de la Cella, et qui semble entourée d'une balustrade à jour en forme de grille.* Tantôt, comme sur les médailles d'Auguste,* la Cella paraît seule en arrière avec ces deux grandes colonnes latérales que l'on prend fort arbitrairement pour deux obélisques placés à l'entrée du temple, et qui, dans ce cas, seraient plutôt encore deux mâts portant une guirlande, analogues à ceux qui précédaient les temples égyptiens.* Tantôt, comme sur une médaille d'argent de Vespasien avec l'inscription ΕΤΟΥΣ ΝΕΟΥ ΙΕΡΟΥ,* c'est un édifice plus complet que l'on voit, la Cella étant accompagnée de deux bas-côtés (figurant peut-être un vestibule), bien plus distincts encore et mieux dessinés sur les monnaies de l'impératrice Julia Domna et de Caracalla, son fils.* Ces dernières représentations sont les plus riches de toutes : au-dessus de la Cella, dont la partie supérieure semble percée de trois ouvertures, est un croissant ou une demi-lune, surmontée d'une étoile à huit rayons, figurant sans doute, comme sur les médailles phéniciennes et sur d'autres monumens, l'astre de Vénus.* Les colombes également dédiées à la déesse se montrent partout, dans la cour ou le vestibule demi-circulaire ; dans le sanctuaire, voltigeant autour de l'idole ici singulièrement modifiée, et sur le toit du temple, aux deux bas-côtés. Les médailles de Pergame et de Sardes, deux villes consacrées à la divinité de Paphos, comme le déclarent leurs inscriptions,* offrent quelques autres variantes du même fond, sans nous éclairer davantage.
 
 *) _Symbolik_, 2., pag. 85. _Cf._ Hetsch, _ap._ Münter, _l. l._, p. 35 ; et la planche additionnelle, particulièrement n° 2.
-
-de vestibule découvert ou de cour intérieure, que tous les mo-
-numens indiquent au-devant de la Cella, et qui semble entourée
-d'une balustrade à jour en forme de grille.* Tantôt, comme sur
-les médailles d'Auguste,* la Cella paraît seule en arrière avec ces
-deux grandes colonnes latérales que l'on prend fort arbitraire-
-ment pour deux obélisques placés à l'entrée du temple, et qui,
-dans ce cas, seraient plutôt encore deux mâts portant une guir-
-lande, analogues à ceux qui précédaient les temples égyptiens.*
-Tantôt, comme sur une médaille d'argent de Vespasien avec l'in-
-scription ΕΤΟΥΣ ΝΕΟΥ ΙΕΡΟΥ,* c'est un édifice plus complet
-que l'on voit, la Cella étant accompagnée de deux bas-côtés
-(figurant peut-être un vestibule), bien plus distincts encore et
-mieux dessinés sur les monnaies de l'impératrice Julia Domna
-et de Caracalla, son fils.* Ces dernières représentations sont
-les plus riches de toutes : au-dessus de la Cella, dont la partie
-supérieure semble percée de trois ouvertures, est un croissant
-ou une demi-lune, surmontée d'une étoile à huit rayons, figu-
 
 *) C'est ce que pensent MM. Münter et Hetsch, dissertation citée, p. 21 et 34. Lenz, p. 13, croit au contraire après Ernesti (sur Tacite, éd. d'Oberlin, reproduite dans la collection Lemaire, t. 3., p. 142) que le temple était _hypæthre_, c'est-à-dire _sub divo_, ouvert par le haut.
 
@@ -195,22 +158,7 @@ ou une demi-lune, surmontée d'une étoile à huit rayons, figu-
 
 *) _Ibid._, n° 5. --- On pourrait croire qu'ici l'idole conique se rapproche de la forme humaine si, en la comparant aux n°s 7 et 9, il ne devenait évident qu'ici encore les modifications se réduisent à de simples accessoires ou ornemens.
 
-rant sans doute, comme sur les médailles phéniciennes et sur d'autres monumens, l'astre de Vénus.* Les colombes également dédiées à la déesse se montrent partout, dans la cour ou le vestibule demi-circulaire ; dans le sanctuaire, voltigeant autour de l'idole ici singulièrement modifiée, et sur le toit du temple, aux deux bas-côtés. Les médailles de Pergame et de Sardes, deux villes consacrées à la divinité de Paphos, comme le déclarent leurs inscriptions,* offrent quelques autres variantes du même fond, sans nous éclairer davantage.
-
-Les ruines mêmes de l'antique Paphos seraient pour nous une
-lumière plus sûre, si elles eussent été moins maltraitées par le
-temps, ou si nous en avions des descriptions plus détaillées. Mais
-comme l'avoue un savant architecte,* qui n'a pas craint cepen-
-dant d'essayer une restauration du temple de Vénus, autant
-la position topographique de cet édifice peut être déterminée
-avec exactitude d'après les données des derniers voyageurs,*
-autant il est difficile de se faire une idée quelconque de sa
-forme et de sa distribution, sans recourir à d'autres docu-
-mens que nous venons de trouver presque aussi peu satisfaisans
-sur ces deux points. Ce temple construit d'abord sur un modèle
-phénicien ou syrien, peut-être sur celui même du temple d'A-
-scalon,* paraît avoir été situé sur une hauteur et sur un sol rocail-
-leux, dans la ville ancienne, à peu de distance de la mer.* Il
+Les ruines mêmes de l'antique Paphos seraient pour nous une lumière plus sûre, si elles eussent été moins maltraitées par le temps, ou si nous en avions des descriptions plus détaillées. Mais comme l'avoue un savant architecte,* qui n'a pas craint cependant d'essayer une restauration du temple de Vénus, autant la position topographique de cet édifice peut être déterminée avec exactitude d'après les données des derniers voyageurs,* autant il est difficile de se faire une idée quelconque de sa forme et de sa distribution, sans recourir à d'autres documens que nous venons de trouver presque aussi peu satisfaisans sur ces deux points. Ce temple construit d'abord sur un modèle phénicien ou syrien, peut-être sur celui même du temple d'Ascalon,* paraît avoir été situé sur une hauteur et sur un sol rocailleux, dans la ville ancienne, à peu de distance de la mer.* Il est probable que c'est cet ancien temple, comme l'appelle Strabon,* par opposition avec les temples bien bâtis qui décoraient la nouvelle Paphos, il est probable, disons-nous, que c'est l'édifice de Palæ-Paphos que nous représentent les monumens figurés. Là seulement pouvait résider l'idole antique et sacrée, l'idole toute orientale, décrite avec un curieux étonnement par les auteurs Grecs et Romains. Du reste, peut-être ne sommes-nous pas suffisamment éclairés à ce sujet ; mais la forme du sanctuaire, non moins bizarre au fond que celle de la déesse, tels que nous les voyons tous deux sur les médailles, prête beaucoup de force à notre conjecture. D'ailleurs nous savons par le géographe cité plus haut que tous les ans avait lieu une procession très solennelle de la nouvelle à l'ancienne ville ; et cette procession ne pouvait être célébrée qu'en l'honneur de la divinité de cette dernière, sans doute à la fête de Vénus et Adonis, vers le solstice d'été.* Ainsi Palæ-Paphos était encore, au temps de Strabon, la métropole de ce culte antique en Cypre et en Asie-Mineure. Plus d'une fois le temple fut détruit par les tremblemens de terre qui dévastèrent l'île, soit depuis, soit aussi sans doute avant les empereurs* ; mais il paraît avoir été constamment rebâti ou restauré sur le type primitif, quoique avec des embellissemens et des agrandissemens successifs, comme les monumens en font foi. Depuis l'établissement du christianisme, l'oracle d'abord et ensuite le temple lui-même tombèrent en discrédit,* et la nature consomma bientôt une ruine que l'abandon des hommes avait commencée. Toutefois, telle est la puissance des vieux souvenirs, et surtout des souvenirs religieux ! la mémoire du peuple n'a point entièrement oublié le nom jadis et si long-temps révéré de la déesse de Paphos. Si nous en croyons les voyageurs, l'on parle encore en Cypre d'une rein _Aphroditis_ ; l'on montre _Koukla_, l'antique Paphos, où fut son sanctuaire ; et près de là, un lieu dont l'appellation barbare _Yeroschipos_ semble aussi avoir conservé la trace du nom grec qui désignait les jardins sacrés de Vénus ἱερὸς κῆπος.*
 
 *) C'est une conjecture probable de Münter, p. 33, note, et 38. L'on peut aussi rapprocher de cette étoile une mosaïque octogone trouvée dans les ruines.
 
@@ -223,8 +171,6 @@ leux, dans la ville ancienne, à peu de distance de la mer.* Il
 *) Herodot. 1., 105. _Cf._ Lenz, p. 11 ; Münter, p. 5.
 
 *) A 10 stades des côtes et à 60 E. de la nouvelle Paphos, suivant Strabon, 14., 683. Près du village ture _Koukla_, l'on trouve des ruines assez considérables que Pocoke conjecturait déjà devoir être celles de Palæ-Paphos. M. de Hammer, qui les a visitées depuis, y a découvert de nombreuses inscriptions à Vénus, ΤΗΙ ΑΦΡΟΔΙΤΗΙ, et même, à ce qu'il croit, des inscriptions phéniciennes à demi effacées. Le nom de _Koukla_ devait naturellement faire songer à celui de _Golgos_ ou _Golgi_ (_Voy._ ci-dessus, p. 4) ; mais était-ce une raison suffisante d'identifier cette ancienne ville de Cypre, située dans la partie orientale de l'île, comme on l'avait pensé jusqu'à présent, et tout au moins mentionnée chez les anciens pour son propre compte (Steph. Byz. _in voc., coll._ Plin. H. N. 5., 31 ; Theocr. Adoniaz., 100 _et ibi_ Schol. ; Lycophron v. 589 sqq. et sch. _ibid. Conf._ Meurs. Cypr. 1., 2 ; Mannert, _Géographie_, 6., 1, p. 576 sq.) avec Palæ-Paphos, qui était dans la partie occidentale, et que jamais aucun ancien n'a dit s'être appelée Golgi ? C'est pourtant ce que fait M. Münter p. 5 et 7 ; sans déduire explicitement ses motifs, et se fondant seulement, à ce qu'il nous semble, sur le passage où Pausanias (8., 5) dit qu'avant l'arrivée d'Agapénor, fondateur de Paphos et de son temple, Vénus n'était adorée chez les Cypriens qu'à Golgi. Il aurait dû au moins rapprocher de ce passage cet autre endroit du même auteur (1., 14) où il est insinué que les Paphiens furent les premiers adorateurs de Vénus en Cypre, et surtout le passage encore plus formel de Tacite (Ann. 3., 62), où le temple de Paphos est appelé positivement le plus ancien des temples de l'île. Le silence de Strabon sur Golgi et le nom moderne de Koukla paraîtraient alors de nouvelles présomptions en faveur d'une hypothèse gratuite du reste. La nouvelle Paphos des anciens se nomme aujourd'hui _Baffa._ _Voy._ outre de Hammer et Ali-Bey, sur ces localités, Clarke, _Travels_, 2., 328 sqq., 334.
-
-est probable que c'est cet ancien temple, comme l'appelle Strabon,* par opposition avec les temples bien bâtis qui décoraient la nouvelle Paphos, il est probable, disons-nous, que c'est l'édifice de Palæ-Paphos que nous représentent les monumens figurés. Là seulement pouvait résider l'idole antique et sacrée, l'idole toute orientale, décrite avec un curieux étonnement par les auteurs Grecs et Romains. Du reste, peut-être ne sommes-nous pas suffisamment éclairés à ce sujet ; mais la forme du sanctuaire, non moins bizarre au fond que celle de la déesse, tels que nous les voyons tous deux sur les médailles, prête beaucoup de force à notre conjecture. D'ailleurs nous savons par le géographe cité plus haut que tous les ans avait lieu une procession très solennelle de la nouvelle à l'ancienne ville ; et cette procession ne pouvait être célébrée qu'en l'honneur de la divinité de cette dernière, sans doute à la fête de Vénus et Adonis, vers le solstice d'été.* Ainsi Palæ-Paphos était encore, au temps de Strabon, la métropole de ce culte antique en Cypre et en Asie-Mineure. Plus d'une fois le temple fut détruit par les tremblemens de terre qui dévastèrent l'île, soit depuis, soit aussi sans doute avant les empereurs* ; mais il paraît avoir été constamment rebâti ou restauré sur le type primitif, quoique avec des embellissemens et des agrandissemens successifs, comme les monumens en font foi. Depuis l'établissement du christianisme, l'oracle d'abord et ensuite le temple lui-même tombèrent en discrédit,* et la nature consomma bientôt une ruine que l'abandon des hommes avait commencée. Toutefois, telle est la puissance des vieux souvenirs, et surtout des souvenirs religieux ! la mémoire du peuple n'a point entièrement oublié le nom jadis et si long-temps révéré de la déesse de Paphos. Si nous en croyons les voyageurs, l'on parle encore en Cypre d'une rein _Aphroditis_ ; l'on montre _Koukla_, l'antique Paphos, où fut son sanctuaire ; et près de là, un lieu dont l'appellation barbare _Yeroschipos_ semble aussi avoir conservé la trace du nom grec qui désignait les jardins sacrés de Vénus ἱερὸς κῆπος.*
 
 *) A la fin de Juin, mois qui dans les temps anciens s'appelait en Cypre _Adonis_ : Hieronym. Comment. in Ezechiel., 8. _Cf._ Creuzer, 2., 91 sqq. et Relig. de l'antiq. vol. 2., liv. 4, chap. 3, art. 3 ; Münter, p. 17.
 
