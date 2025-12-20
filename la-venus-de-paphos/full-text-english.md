@@ -2,9 +2,13 @@
 
 ## By Joseph-Daniel Guigniaut,
 
-### Professor of Greek Literature, etc.
+### Professor of Greek Literature and Associate Professor at the Preparatory School of the Academy of Paris, Member of the Asian Society.
 
-## Paris. June 1827.
+#### Dissertation attached to the notes of Volume 4 of The Complete Works of Tacitus, by J.-L. Burnouf, Professor at the Royal College of France.
+
+## Paris, 1827.
+
+### Classical Bookshop of L. Hachette, Alumnus of the former École Normale, No. 12 Pierre‑Sarrazin Street; and at Treuttel and Würtz, Booksellers, No. 17 Bourbon Street.
 
 ---
 
@@ -453,7 +457,13 @@ To trace the worship of Venus to its source in Hindoostan, where it is still int
 
 # Preface.
 
-...
+We wanted to make this short dissertation a modest, though rather weak, double hommage of gratitude to the skillful master whose ingenious methods and admirable examples guided our first steps into the vestibule of antiquity; and to the profound savant whose laborious revelations and fruitful inspirations opened the sanctuary for us. At the same time, it will serve as a prelude to several pieces of the same genre, which will accompany the forthcoming volumes of _Tacitus_ by Mr. Burnouf, and to the fairly imminent publication of the second installment of _Religions of Antiquity_, after Mr. Creuzer, which will include, not only the religions of Western Asia, but also the origins and the entire national and popular portion of the religions of ancient Greece and Italy.
+
+Tacitus, on the eve of that great religious revolution that would elevate a single God and a single cult from the _débris_ of so many gods and diverse cults, seems to gather, with a curious presentiment, whenever the opportunity presents itself, the scattered titles of those ancient temples that were threatened by a common ruin. Describing, at the beginning of the second book of the Histories (chapters 2-4), the return of Titus to Judea, to his father Vespasian, he shows us this prince visiting, on the island of Cyprus, the temple of Venus of Paphos, celebrated among both natives and foreigners.
+
+"I will make, he says, a brief digression on the origin of this cult, the establishment of the temple, and the form of the goddess, who is represented nowhere in this way. According to the oldest tradition, the founder of the temple was King Aérias; a name that some claim, on the contrary, belongs to the goddess herself. A more modern opinion holds that the temple was consecrated by Cinyras, on the very spot where Venus came ashore after the sea had birthed her. It is added that the knowledge of the haruspices and the secrets of that art came from abroad, brought by the Cilician Tamiras, and that it was decreed that the descendants of these two families would jointly preside over all the duties of the cult. Soon, so that the royal house might retain its preeminence over any foreign lineage, the newcomers renounced the science they had brought, and the priest consulted to this day is always a descendant of Cinyras. Every victim is accepted, provided it is male. The entrails of kid goats are trusted the most. It is forbidden to spill blood on the altars; prayers and a pure fire are all that are offered there, and although performed outdoors, the rain has never wet them. The goddess is not depicted in human form: she is a circular block that rises into a cone, diminishing gradually from the base to the summit. The reason for this form is unknown."
+
+"After having contemplated the riches of the temple, the offerings of the kings, and all these antiquities that the Greeks' vanity traces back to unknown ages, Titus, etc."
 
 # The Venus of Paphos and her Temple.
 
