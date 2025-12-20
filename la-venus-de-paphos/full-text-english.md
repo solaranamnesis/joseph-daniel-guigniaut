@@ -12,15 +12,29 @@
 
 ---
 
-# [Introduction.](#introduction-1)
-
 # [Preface.](#preface-1)
 
 # [The Venus of Paphos and her Temple.](#the-venus-of-paphos-and-her-temple-2)
 
+# [Appendix.](#appendix-1)
+
 ---
 
-# Introduction.
+# Preface.
+
+We wanted to make this short dissertation a modest, though rather weak, double hommage of gratitude to the skillful master whose ingenious methods and admirable examples guided our first steps into the vestibule of antiquity; and to the profound savant whose laborious revelations and fruitful inspirations opened the sanctuary for us. At the same time, it will serve as a prelude to several pieces of the same genre, which will accompany the forthcoming volumes of _Tacitus_ by Mr. Burnouf, and to the fairly imminent publication of the second installment of _Religions of Antiquity_, after Mr. Creuzer, which will include, not only the religions of Western Asia, but also the origins and the entire national and popular portion of the religions of ancient Greece and Italy.
+
+Tacitus, on the eve of that great religious revolution that would elevate a single God and a single cult from the _débris_ of so many gods and diverse cults, seems to gather, with a curious presentiment, whenever the opportunity presents itself, the scattered titles of those ancient temples that were threatened by a common ruin. Describing, at the beginning of the second book of the Histories (chapters 2-4), the return of Titus to Judea, to his father Vespasian, he shows us this prince visiting, on the island of Cyprus, the temple of Venus of Paphos, celebrated among both natives and foreigners.
+
+"I will make, he says, a brief digression on the origin of this cult, the establishment of the temple, and the form of the goddess, who is represented nowhere in this way. According to the oldest tradition, the founder of the temple was King Aérias; a name that some claim, on the contrary, belongs to the goddess herself. A more modern opinion holds that the temple was consecrated by Cinyras, on the very spot where Venus came ashore after the sea had birthed her. It is added that the knowledge of the haruspices and the secrets of that art came from abroad, brought by the Cilician Tamiras, and that it was decreed that the descendants of these two families would jointly preside over all the duties of the cult. Soon, so that the royal house might retain its preeminence over any foreign lineage, the newcomers renounced the science they had brought, and the priest consulted to this day is always a descendant of Cinyras. Every victim is accepted, provided it is male. The entrails of kid goats are trusted the most. It is forbidden to spill blood on the altars; prayers and a pure fire are all that are offered there, and although performed outdoors, the rain has never wet them. The goddess is not depicted in human form: she is a circular block that rises into a cone, diminishing gradually from the base to the summit. The reason for this form is unknown."
+
+"After having contemplated the riches of the temple, the offerings of the kings, and all these antiquities that the Greeks' vanity traces back to unknown ages, Titus, etc."
+
+# The Venus of Paphos and her Temple.
+
+...
+
+# Appendix.
 
 (Extracted from _The Monthly Review_, Vol. 11, June 1829.)
 
@@ -454,17 +468,3 @@ The well pleased heaven assumes a brighter ray
 At thy approach, and makes a double day.'
 
 To trace the worship of Venus to its source in Hindoostan, where it is still intimately connected with Sivaism, it would be necessary to enter into details by no means suited to the pages of a popular Review. The Orientals are incapable of shrouding their symbols in those veils of beauty, which the Grecians threw over all their worship, and leave too much open to the eye of sense.
-
-# Preface.
-
-We wanted to make this short dissertation a modest, though rather weak, double hommage of gratitude to the skillful master whose ingenious methods and admirable examples guided our first steps into the vestibule of antiquity; and to the profound savant whose laborious revelations and fruitful inspirations opened the sanctuary for us. At the same time, it will serve as a prelude to several pieces of the same genre, which will accompany the forthcoming volumes of _Tacitus_ by Mr. Burnouf, and to the fairly imminent publication of the second installment of _Religions of Antiquity_, after Mr. Creuzer, which will include, not only the religions of Western Asia, but also the origins and the entire national and popular portion of the religions of ancient Greece and Italy.
-
-Tacitus, on the eve of that great religious revolution that would elevate a single God and a single cult from the _débris_ of so many gods and diverse cults, seems to gather, with a curious presentiment, whenever the opportunity presents itself, the scattered titles of those ancient temples that were threatened by a common ruin. Describing, at the beginning of the second book of the Histories (chapters 2-4), the return of Titus to Judea, to his father Vespasian, he shows us this prince visiting, on the island of Cyprus, the temple of Venus of Paphos, celebrated among both natives and foreigners.
-
-"I will make, he says, a brief digression on the origin of this cult, the establishment of the temple, and the form of the goddess, who is represented nowhere in this way. According to the oldest tradition, the founder of the temple was King Aérias; a name that some claim, on the contrary, belongs to the goddess herself. A more modern opinion holds that the temple was consecrated by Cinyras, on the very spot where Venus came ashore after the sea had birthed her. It is added that the knowledge of the haruspices and the secrets of that art came from abroad, brought by the Cilician Tamiras, and that it was decreed that the descendants of these two families would jointly preside over all the duties of the cult. Soon, so that the royal house might retain its preeminence over any foreign lineage, the newcomers renounced the science they had brought, and the priest consulted to this day is always a descendant of Cinyras. Every victim is accepted, provided it is male. The entrails of kid goats are trusted the most. It is forbidden to spill blood on the altars; prayers and a pure fire are all that are offered there, and although performed outdoors, the rain has never wet them. The goddess is not depicted in human form: she is a circular block that rises into a cone, diminishing gradually from the base to the summit. The reason for this form is unknown."
-
-"After having contemplated the riches of the temple, the offerings of the kings, and all these antiquities that the Greeks' vanity traces back to unknown ages, Titus, etc."
-
-# The Venus of Paphos and her Temple.
-
-...
