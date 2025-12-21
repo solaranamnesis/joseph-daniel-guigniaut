@@ -88,7 +88,7 @@ Les premiers rois de cette île, descendans de Cinyras, et pour cette raison app
 
 *) Ce nom chaldéen ou assyrien d'origine ne voudrait-il pas dire le _grand sare_, la _grande année_, sens qui rentrerait tout-à-fait dans le caractère sidérico-mythologique de ces religions ?
 
-*) Strab. 12., p. 557. _Cf._ Creuzer, 1., 345 sqq ; 2., 32, 224, 233 ; et Rel. de l'antiq., liv. 4., chap. 3 et 5.
+*) Strab. 12., p. 557. _Cf._ Creuzer, 1., 345 sqq. ; 2., 32, 224, 233 ; et Rel. de l'antiq., liv. 4., chap. 3 et 5.
 
 *) _Sancus-Semo-Fidius._ Varro de _L. L._, 4., 10 ; Propert., 4., 10 ; Ovid. Fastor. 6., 213-217 ; Augustin. de Civ. Dei, 18., 19. _Cf._ Creuzer, 2., p. 964 sq., et Relig. de l'ant., t. 2., liv. 5, sect. 2, chap. 5, art. 1. --- Nous ne voudrions pas trop insister sur ce dernier rapprochement, _Sancus_ paraissant être le même nom que _Sanctus_, c'est-à-dire le dieu de la foi jurée (_me Dius fidius, me Hercules_), et dérivant comme lui de la racine _sancire_, laquelle au reste se retrouve dans le sanscrit _sandj_, adhérer, être fidèle. Cependant il est remarquable que Sancus soit un Hercule aussi bien que Sandon et Sandacus : ces trois noms n'auraient-ils pas une origine commune ainsi que les trois personnages ?
 
