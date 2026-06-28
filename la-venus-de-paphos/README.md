@@ -3,4 +3,4 @@
 [English - Plain Text](full-text-english.md)  
 English - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
 [French - Plain Text](full-text-french.md)  
-French - PDF  
+[French - PDF](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french.pdf) | [Biolinum](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_biolinum.pdf) | [Atkinson](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_atkinson.pdf) | [Cursive](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_frcursive.pdf) | [Custom01](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_custom01.pdf) | [Custom02](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_custom02.pdf) | [Custom03](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_custom03.pdf) | [Custom04](https://cdn.solaranamnesis.com/JosephDanielGuigniaut/guigniaut_venus_1827_french_custom04.pdf)  
