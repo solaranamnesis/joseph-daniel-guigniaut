@@ -445,7 +445,7 @@ The Queen at Hybla bids her throne appear;
 And there presides; and there the fav'rite band  
 (Her smiling Graces) share the great command,  
 Now beauteous Hybla! dress thy flow'ry beds  
-With all the pride the lavish season sheds;
+With all the pride the lavish season sheds;  
 Now all thy colours, all thy fragrance yield,  
 And rival Enna's aromatic field.  
 To till the presence of the gentle court  
